@@ -56,3 +56,6 @@ tag_archive:
   type: liquid
   path: "/tags/"
 date_format: "%d.%m.%Y"
+header:
+  image: /assets/images/header.jpg
+  image_description: "A description of the image"
