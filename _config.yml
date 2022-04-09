@@ -21,12 +21,12 @@ plugins:
 author:
   bio: Blogroll
   links:
-  - label: Wieselblog
-    icon: fas fa-fw fa-link
-    url: https://wieselblog.wordpress.com/
   - label: Buddenbohm
     icon: fas fa-fw fa-link
     url: https://www.buddenbohm-und-soehne.de/
+  - label: Wieselblog
+    icon: fas fa-fw fa-link
+    url: https://wieselblog.wordpress.com/
 footer:
   links: []
 atom_feed:
@@ -57,5 +57,5 @@ tag_archive:
   path: "/tags/"
 date_format: "%d.%m.%Y"
 header:
-  image: /assets/images/error-420-XDa7EBHFzlo-unsplash.jpg
-  image_description: "A description of the image"
+  image: "/assets/images/error-420-XDa7EBHFzlo-unsplash.jpg"
+  image_description: A description of the image
