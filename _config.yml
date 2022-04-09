@@ -1,11 +1,8 @@
----
 url: "https://andrejplatonow.github.io"
 baseurl: "/unendlichkeitsfiktion"
 repository: unendlichkeitsfiktion/andrejplatonow.github.io
----
 title: Unendlichkeitsfiktion
 search: true
-
 markdown: kramdown
 remote_theme: mmistakes/minimal-mistakes
 minimal_mistakes_skin: dirt
