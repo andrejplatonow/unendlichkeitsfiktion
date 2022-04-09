@@ -55,3 +55,4 @@ category_archive:
 tag_archive:
   type: liquid
   path: "/tags/"
+date_format: "%d.%m.%Y"
