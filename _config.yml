@@ -29,6 +29,8 @@ author:
     url: https://www.buddenbohm-und-soehne.de/
 footer:
   links: []
+atom_feed:
+  hide: true
 defaults:
 - scope:
     path: ''
