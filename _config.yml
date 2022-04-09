@@ -57,5 +57,5 @@ tag_archive:
   path: "/tags/"
 date_format: "%d.%m.%Y"
 header:
-  image: /assets/images/header.jpg
+  image: /assets/images/error-420-XDa7EBHFzlo-unsplash.jpg
   image_description: "A description of the image"
