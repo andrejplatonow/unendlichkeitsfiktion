@@ -40,11 +40,14 @@ defaults:
   values:
     layout: single
     author_profile: true
-    read_time: false
     comments: true
+    read_time: false
+    show_date: true
     share: false
     related: false
-    show_date: true
+    header:
+      image: "/assets/images/error-420-XDa7EBHFzlo-unsplash.jpg"
+      image_description: A description of the image
 - scope:
     path: _pages
     type: pages
@@ -58,6 +61,3 @@ tag_archive:
   type: liquid
   path: "/tags/"
 date_format: "%d.%m.%Y"
-header:
-  image: "/assets/images/error-420-XDa7EBHFzlo-unsplash.jpg"
-  image_description: A description of the image
