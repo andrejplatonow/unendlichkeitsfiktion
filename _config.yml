@@ -23,7 +23,7 @@ plugins:
 - jemoji
 - jekyll-include-cache
 author:
-  name: ''
+  name: Unendlichkeitsfiktion
   avatar: ''
   bio: Blogroll
   links:
@@ -46,7 +46,7 @@ defaults:
     comments: true
     share: false
     related: false
-    show_date: true   
+    show_date: true
 - scope:
     path: _pages
     type: pages
