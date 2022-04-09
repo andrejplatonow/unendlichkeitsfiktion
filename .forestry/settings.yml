@@ -5,6 +5,10 @@ admin_path: ''
 webhook_url: 
 sections:
 - type: document
+  path: _data/navigation.yml
+  label: Navigation
+  match: "**/*"
+- type: document
   path: _config.yml
   label: Configuration
 - type: jekyll-pages
