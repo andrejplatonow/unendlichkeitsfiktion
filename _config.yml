@@ -1,10 +1,14 @@
 ---
-title: Unendlichkeitsfiktion
-minimal_mistakes_skin: dirt
-search: true
+url: "https://andrejplatonow.github.io"
+baseurl: "/unendlichkeitsfiktion"
 repository: unendlichkeitsfiktion/andrejplatonow.github.io
+---
+title: Unendlichkeitsfiktion
+search: true
+
 markdown: kramdown
 remote_theme: mmistakes/minimal-mistakes
+minimal_mistakes_skin: dirt
 permalink: "/:categories/:title/"
 paginate: "10"
 paginate_path: "/page:num/"
