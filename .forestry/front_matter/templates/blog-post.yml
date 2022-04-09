@@ -12,7 +12,7 @@ fields:
   label: date
   config:
     date_format: DD.MM.YYYY
-    time_format: ''
+    time_format: hh:mm
     required: true
   default: now
 pages:
