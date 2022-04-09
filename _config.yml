@@ -1,9 +1,5 @@
 ---
 title: Unendlichkeitsfiktion
-email: 
-description: ''
-twitter_username: ''
-github_username: ''
 minimal_mistakes_skin: dirt
 search: true
 repository: unendlichkeitsfiktion/andrejplatonow.github.io
@@ -23,12 +19,10 @@ plugins:
 - jemoji
 - jekyll-include-cache
 author:
-  name: Unendlichkeitsfiktion
-  avatar: ''
   bio: Blogroll
   links:
   - label: Wieselblog
-    icon: ''
+    icon: fas fa-fw fa-link
     url: https://wieselblog.wordpress.com/
   - label: Buddenbohm
     icon: fas fa-fw fa-link
