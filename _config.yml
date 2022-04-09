@@ -9,8 +9,8 @@ minimal_mistakes_skin: dirt
 permalink: "/:categories/:title/"
 paginate: "10"
 paginate_path: "/page:num/"
-timezone: DE
-locale: de
+timezone: "DE"
+locale: "de-DE"
 include:
 - _pages
 plugins:
