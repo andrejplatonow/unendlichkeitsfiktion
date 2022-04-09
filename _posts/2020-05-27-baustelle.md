@@ -5,4 +5,4 @@ categories: []
 tags: []
 
 ---
-    Ich mache eine Verwandlung zur Baustellenbeobachterin und an Baustellen Herumsteherin durch. Kann mir vorstellen, mich demnächst zu einer Gruppe Männer zu gesellen und ihnen die Baustelle zu erklären.
+Ich mache eine Verwandlung zur Baustellenbeobachterin und an Baustellen Herumsteherin durch. Kann mir vorstellen, mich demnächst zu einer Gruppe Männer zu gesellen und ihnen die Baustelle zu erklären.
