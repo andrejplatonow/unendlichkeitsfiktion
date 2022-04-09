@@ -27,6 +27,9 @@ author:
   avatar: ''
   bio: ''
   links:
+  - label: Wieselblog
+    icon: ''
+    url: https://wieselblog.wordpress.com/
   - label: Buddenbohm
     icon: fas fa-fw fa-link
     url: https://www.buddenbohm-und-soehne.de/
