@@ -8,7 +8,8 @@ remote_theme: mmistakes/minimal-mistakes
 permalink: "/:categories/:title/"
 paginate: "10"
 paginate_path: "/page:num/"
-timezone: 
+timezone: "DE"
+locale: "de-DE"
 include:
 - _pages
 plugins:
