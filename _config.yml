@@ -61,14 +61,3 @@ tag_archive:
   type: liquid
   path: "/tags/"
 date_format: "%d.%m.%Y"
-comments:
-  provider: "giscus"
-  giscus:
-    repo_id              : "R_kgDOHJLZvA"
-    category_name        : "Announcements"
-    category_id          : "DIC_kwDOHJLZvM4COgC0"
-    discussion_term      : "pathname"
-    reactions_enabled    : '1'
-    theme                : "light"
-    input-position       : "bottom"
-    lang                 : "de"
