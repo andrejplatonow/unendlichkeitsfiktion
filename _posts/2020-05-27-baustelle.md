@@ -1,8 +1,6 @@
 ---
 title: Baustelle
 date: 2020-05-27 02:00:00 +0200
-categories: []
-tags: []
 
 ---
 ![](/unendlichkeitsfiktion/uploads/img_20200505_075845.jpg "Baustelle")
