@@ -1,0 +1,8 @@
+---
+date: 2022-01-16 21:03:15 +0100
+title: "(Saadi)"
+
+---
+    Alles ist schwierig, bevor es leicht wird.
+    
+    
