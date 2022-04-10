@@ -1,0 +1,8 @@
+---
+date: 2020-06-29 00:00:00 +0200
+title: Du
+
+---
+Lieber Lieferando-Mensch,
+
+ich weiß nicht, ob du ein Mann oder eine Frau bist. Ich nehme dich als beides wahr. Von meinem Platz in der Bibliothek sehe ich zu dir hinüber ins Geschichtsregal. Du machst deine Pause hier, nehme ich an. Der orangefarbene Rucksack zu deinen Füßen ist zusammengesackt, während du, versunken wie ich es selbst nicht sein kann, deinen Blick nicht hebst vom Buch in deinem Schoß. Du schläfst nicht. Das Seitenblättern ist hörbar, selbst als jemand einen Gang weiter verbotenerweise telefoniert. Ich kann den Titel deines Buchs nicht erkennen, weiß aber, dass es sich um den 1. Weltkrieg handelt, in den du dich vertiefst. Die Umschläge der Bücher sind mir vertraut, ich kenne alle himmelblauen, zumindest vom Sehen. Lass dich nicht stören. Auch nicht von mir. Sie sei dein Ruhekissen, diese Bibliothek, Zuflucht vor den Straßen der Stadt, und Beschreibung der Kriege, die hinter uns liegen.
