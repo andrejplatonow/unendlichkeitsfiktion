@@ -54,10 +54,7 @@ defaults:
   values:
     layout: single
     author_profile: true
-category_archive:
-  type: liquid
-  path: "/categories/"
-tag_archive:
-  type: liquid
-  path: "/tags/"
+    header:
+      image: "/assets/images/error-420-XDa7EBHFzlo-unsplash.jpg"
+      image_description: A description of the image
 date_format: "%d.%m.%Y"
