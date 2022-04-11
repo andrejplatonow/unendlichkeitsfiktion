@@ -13,6 +13,7 @@ timezone: "DE"
 locale: "de-DE"
 include:
 - _pages
+
 plugins:
 - jekyll-paginate
 - jekyll-sitemap
@@ -20,6 +21,7 @@ plugins:
 - jekyll-feed
 - jemoji
 - jekyll-include-cache
+
 author:
   bio: Blogroll
   links:
@@ -29,10 +31,13 @@ author:
   - label: Wieselblog
     icon: fas fa-fw fa-link
     url: https://wieselblog.wordpress.com/
+    
 footer:
   links: []
+
 atom_feed:
   hide: true
+
 defaults:
 - scope:
     path: ''
@@ -57,10 +62,37 @@ defaults:
     header:
       image: "/assets/images/error-420-XDa7EBHFzlo-unsplash.jpg"
       image_description: A description of the image
+- scope:
+    path: ''
+    type: home
+  values:
+    layout: single
+    author_profile: true
+    header:
+      image: "/assets/images/error-420-XDa7EBHFzlo-unsplash.jpg"
+      image_description: A description of the image
+- scope:
+    path: ''
+    type: archive
+  values:
+    layout: single
+    author_profile: true
+    header:
+      image: "/assets/images/error-420-XDa7EBHFzlo-unsplash.jpg"
+      image_description: A description of the image
+
 date_format: "%d.%m.%Y"
+
 comments:
   provider  : "staticman_v2"
   staticman:
     branch    : "master"
     endpoint  : "https://commentswithstaticman.herokuapp.com/v3/entry/github/"
+ 
+# HTML Compression
+# https://jch.penibelst.de/
+compress_html:
+  clippings: all
+  ignore:
+    envs: development
  
