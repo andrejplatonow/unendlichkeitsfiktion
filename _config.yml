@@ -1,6 +1,6 @@
 url: "https://andrejplatonow.github.io"
 baseurl: "/unendlichkeitsfiktion"
-#repository: "andrejplatonow/unendlichkeitsfiktion"
+repository: unendlichkeitsfiktion/andrejplatonow.github.io
 title: Unendlichkeitsfiktion
 search: true
 markdown: kramdown
