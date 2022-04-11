@@ -1,5 +1,5 @@
 ---
-date: 2019-03-25 23:10:05 +0100
+date: 2019-03-25T23:10:05.000+01:00
 title: 'Der erste Morgen '
 
 ---
@@ -17,5 +17,5 @@ Kiefern. Es ist doch klar, dass bei solchen Bäumen andere Menschen herauskommen
 Der Waldboden sinkt unter meinen Schritten ab und stellt sich hinter mir wieder auf. Hier deckt kein nasses, verschleimtes Laub die Erde unter Farnen.  
 Das ist ein Wald auf einem Strand.
 
-Bei Einbruch der Dunkelheit die Diskothek Hyperdome. Keiner feiert. Ob überhaupt noch Strom fließt? Schatten vor den geschlossenen Türen. Der Himmel kippt, Wolken schieben sich rein. Horizontfiktion.  
+Bei Einbruch der Dunkelheit die Diskothek Hyperdome. Keiner feiert. Ob überhaupt noch Strom fließt? Schatten vor den geschlossenen Türen. Ein leerer Parkplatz. Der Himmel kippt, Wolken schieben sich rein, Horizontfiktion.  
 Die Freundin und ich laufen hier herum. Es ist alles gerade so durcheinander in ihr. In mir gerade nicht. Das kann beim nächsten Mal anders sein, wenn wir uns sehen.
