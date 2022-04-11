@@ -51,8 +51,8 @@ defaults:
     share: false
     related: false
     header:
-      image: "/assets/images/error-420-XDa7EBHFzlo-unsplash.jpg"
-      image_description: A description of the image
+      overlay_image: "/assets/images/error-420-XDa7EBHFzlo-unsplash.jpg"
+      overlay_filter: 0.5 # same as adding an opacity of 0.5 to a black background
 
 date_format: "%d.%m.%Y"
 
