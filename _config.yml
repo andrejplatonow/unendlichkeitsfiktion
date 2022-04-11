@@ -58,3 +58,10 @@ defaults:
       image: "/assets/images/error-420-XDa7EBHFzlo-unsplash.jpg"
       image_description: A description of the image
 date_format: "%d.%m.%Y"
+repository  : # Git username/repo-name e.g. "mmistakes/minimal-mistakes"
+comments:
+  provider  : "staticman_v2"
+  staticman:
+    branch    : "master"
+    endpoint  : https://commentswithstaticman.herokuapp.com/v3/entry/github/
+ 
