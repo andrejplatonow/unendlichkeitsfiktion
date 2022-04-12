@@ -52,6 +52,7 @@ defaults:
     related: false
     header:
       image: "/assets/images/mond.jpg"
+      imagehome: true
 
 date_format: "%d.%m.%Y"
 
