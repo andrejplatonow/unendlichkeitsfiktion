@@ -1,5 +1,5 @@
 ---
-date: 2022-04-11 23:01:23 +0200
+date: 2022-07-07 23:01:23 +0200
 title: Insolvenz
 
 ---
@@ -27,5 +27,4 @@ Sie zuckt mit den Schultern.
 Sechs Jahre Dokumentation einer bis vor Kurzem erfolgversprechenden Krebstherapie.   
 Meine erste Aufgabe des Tages wird dann tatsächlich daraus bestehen, dem ehemaligen Leiter des Instituts den Korridor zu diesen sechsundneunzig Stahlschränken aufzuschließen, damit er die darin enthaltenen Ordner mit zwei Studenten eigenhändig in einem zu diesem Zweck angelieferten Container entsorgen kann.   
 Mir scheint mir das so ungeheuer roh, dass ich Carola lange nicht glauben will, als sie behauptet, man habe ihm abgeraten, aber er wolle es unbedingt selbst tun. Und sie weiß es von dem Vorgesetzten der Zeitarbeitsfirma. Mit dem geht sie einmal die Stunde rauchen.  
-Als Carola beim nächsten Mal zum Rauchen geht, entsperre ich die Schleuse zum Reinraumsystem, berühre die nicht mehr summenden Kühlanlagen, Zentrifugen und Brutschränke und bleibe vor der in rotem Hartplastik verschalten Augendusche stehen. Ich halte mein Gesicht in geringem Abstand an die Düsen, drückte den Knopf und lasse einen lautlos, mimisch stark untermalten Schrei aus meiner Kehle entweichen, als der Wasserstrahl aus der vor vier Monaten noch intakten Leitung ausbleibt.  
- 
+Als Carola beim nächsten Mal zum Rauchen geht, entsperre ich die Schleuse zum Reinraumsystem, berühre die nicht mehr summenden Kühlanlagen, Zentrifugen und Brutschränke und bleibe vor der in rotem Hartplastik verschalten Augendusche stehen. Ich halte mein Gesicht in geringem Abstand an die Düsen, drückte den Knopf und lasse einen lautlos, mimisch stark untermalten Schrei aus meiner Kehle entweichen, als der Wasserstrahl aus der vor vier Monaten noch intakten Leitung ausbleibt.
