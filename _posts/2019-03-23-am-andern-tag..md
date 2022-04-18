@@ -3,7 +3,7 @@ date: 2019-03-23T23:44:36.000+01:00
 title: 'Am andern Tag. '
 
 ---
-[](/uploads/img_20150313_112210.jpg)
+![](/uploads/img_20150313_112210.jpg)
 
 Sandbänke, die Freundin, ich.  
 Wir sind rosa. Dann gelb. Pastellgekörntes Land. Winter, der sich zum Frühjahr wendet. Ich kann es jedes Mal kaum glauben, dass nach Kälte und Monaten der Nässe doch alles wieder gut wird, etwas kommt, dass all die große Luft um uns mit unaussprechlicher Wärme füllt. Das ist Verlässlichkeit, die kein Mensch einem anderen sein kann.  
