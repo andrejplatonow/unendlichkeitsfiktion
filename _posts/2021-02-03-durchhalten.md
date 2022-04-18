@@ -4,7 +4,7 @@ title: Durchhalten
 
 ---
   
-![](/unendlichkeitsfiktion/uploads/nawalny-com.jpeg)
+[](/uploads/nawalny-com.jpeg)
 
 Geträumt, dass ich Alexej Nawalny in einer Altbauwohnung verstecke, die ich extra zu diesem Zweck angemietet habe. Aufwendige Sicherheitsvorkehrungen (Schlüssel, Code, Klopfzeichen) werden von mir getroffen.  
 Dummerweise verschaffen sich ein Dutzend Feiernde aus dem Erdgeschoss Zugang zu der Wohnung. Sie finden die Idee, jemanden zu verstecken, witzig, wollen auch behilflich sein, verkennen aber den Ernst der Lage.  
