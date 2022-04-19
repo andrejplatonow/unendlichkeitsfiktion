@@ -1,0 +1,50 @@
+# when an image is uploaded, resize it if the dimensions exceed the specified width
+name: resize_image
+
+on:
+  push:
+    branches: [ master ]
+    paths:
+      - 'uploads/**.jpg'
+      - 'uploads/**.jpeg'
+      - 'uploads/**.png'
+
+jobs:
+  build:
+    name: Image Resizer Inplace Limit
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout Repo
+        uses: actions/checkout@master
+      - name: Compress Images
+        id: resize-images
+        uses: petems/image-resizer-gh-action@master
+        with:
+          target: uploads/ # directory to look for images in
+          widthLimit: 636 # max width to check
+      - name: Commit changes
+        uses: EndBug/add-and-commit@v4
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        with:
+          add: 'uploads/'
+          author_name: "github-actions[bot]"
+          author_email: "github-actions@users.noreply.github.com"
+          message: |
+            Images Reszied by Github action\n
+            ```
+            ${{steps.resize-images.outputs.images_changed}}
+            ```
+      - name: Convert to Markdown Table
+        uses: petems/csv-to-md-table-action@master
+        id: csv-table-output
+        with:
+          csvinput: ${{steps.resize-images.outputs.csv_images_changed}}
+      - uses: mshick/add-pr-comment@v1
+        with:
+          message: |
+            **Hello, I resized images for you!**:
+            ${{steps.csv-table-output.outputs.markdown-table}}
+          repo-token: ${{ secrets.GITHUB_TOKEN }}
+          repo-token-user-login: 'github-actions[bot]' # The user.login for temporary GitHub tokens
+          allow-repeats: true
