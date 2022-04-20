@@ -52,6 +52,20 @@ defaults:
     header:
       image: "/assets/images/mond.jpg"
       imagehome: true
+- scope:
+    path: ''
+    type: pages
+  values:
+    layout: single
+    author_profile: true
+    comments: false
+    read_time: false
+    show_date: false
+    share: false
+    related: false
+    header:
+      image: "/assets/images/mond.jpg"
+      imagehome: true
 
 date_format: "%d.%m.%Y"
 
