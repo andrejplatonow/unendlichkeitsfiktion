@@ -1,32 +1,12 @@
 ---
 date: 2022-04-20 16:50:07 +0200
 title: Impressum
-published: false
 
 ---
-# Impressum
-
 Angaben gemäß § 5 TMG
 
-Max Muster  
-Musterweg  
-12345 Musterstadt
-
-**Vertreten durch:**  
-Max Muster
-
 **Kontakt:**  
-Telefon: 01234-789456  
-Fax: 1234-56789  
-E-Mail: [max@muster.de](mailto:max@muster.de)
-
-**Aufsichtsbehörde:**  
-Musteraufsicht Musterstadt
-
-**Verantwortlich für den Inhalt nach § 55 Abs. 2 RStV:**  
-Max Muster  
-Musterweg  
-12345 Musterstadt
+E-Mail: [kontakt@unendlichkeitsfiktion.de](mailto:max@muster.de)
 
 **Haftungsausschluss:**
 
