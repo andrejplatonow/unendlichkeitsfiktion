@@ -22,6 +22,8 @@ jobs:
         with:
           target: uploads/ # directory to look for images in
           widthLimit: 636 # max width to check
+          heightLimit: 3000 # max height to check          
+          dimensions: 636x3000 # parameter to change size, passed to mogrify as ``
       - name: Commit changes
         uses: EndBug/add-and-commit@v4
         env:
