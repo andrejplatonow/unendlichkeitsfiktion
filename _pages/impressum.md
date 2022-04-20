@@ -6,7 +6,7 @@ title: Impressum
 Angaben gemäß § 5 TMG
 
 **Kontakt:**  
-E-Mail: [kontakt@unendlichkeitsfiktion.de](mailto:max@muster.de)
+E-Mail: kontakt@unendlichkeitsfiktion.de
 
 **Haftungsausschluss:**
 
