@@ -73,7 +73,7 @@ comments:
   provider  : "staticman_v2"
   staticman:
     branch    : "master"
-    endpoint  : "https://staticman.xn--ssch-loa.de/v3/entry/github/andrejplatonow/unendlichkeitsfiktion/master"
+    endpoint  : "https://staticman.xn--ssch-loa.de/v3/entry/github/"
  
 # HTML Compression
 # https://jch.penibelst.de/
