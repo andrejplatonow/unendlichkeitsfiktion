@@ -23,18 +23,30 @@ plugins:
 author:
   bio: Blogroll
   links:
+  - label: Au fil des mots
+    icon: ''
+    url: http://aufildesmots.biz/
   - label: Buddenbohm
     icon: fas fa-fw fa-link
     url: https://www.buddenbohm-und-soehne.de/
   - label: Hotel
     icon: ''
     url: http://hotelmama.it/
+  - label: Kraulquappe
+    icon: ''
+    url: https://kraulquappe.com/
   - label: Landleben
     icon: ''
     url: https://landlebenblog.org/blog/
+  - label: Mequito
+    icon: ''
+    url: http://mequito.org/
   - label: Wieselblog
     icon: fas fa-fw fa-link
     url: https://wieselblog.wordpress.com/
+  - label: Wald und Höhle
+    icon: ''
+    url: https://waldundhoehle.wordpress.com/
 footer:
   links: []
 atom_feed:
