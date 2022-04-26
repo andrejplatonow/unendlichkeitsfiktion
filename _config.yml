@@ -23,12 +23,15 @@ plugins:
 author:
   bio: Blogroll
   links:
-  - label: Hotel
+  - label: Landleben
     icon: ''
-    url: http://hotelmama.it/
+    url: https://landlebenblog.org/blog/
   - label: Buddenbohm
     icon: fas fa-fw fa-link
     url: https://www.buddenbohm-und-soehne.de/
+  - label: Hotel
+    icon: ''
+    url: http://hotelmama.it/
   - label: Wieselblog
     icon: fas fa-fw fa-link
     url: https://wieselblog.wordpress.com/
