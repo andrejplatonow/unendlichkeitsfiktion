@@ -26,9 +26,6 @@ author:
   - label: ''
     icon: ''
     url: ''
-  - label: 'Kreuzberg '
-    icon: ''
-    url: https://kreuzbergsuedost.wordpress.com/
   - label: Au fil des mots
     icon: ''
     url: http://aufildesmots.biz/
@@ -44,6 +41,9 @@ author:
   - label: Kraulquappe
     icon: ''
     url: https://kraulquappe.com/
+  - label: 'Kreuzberg '
+    icon: ''
+    url: https://kreuzbergsuedost.wordpress.com/
   - label: Landleben
     icon: ''
     url: https://landlebenblog.org/blog/
