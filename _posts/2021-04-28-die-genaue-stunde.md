@@ -1,5 +1,5 @@
 ---
-date: 2021-04-28 21:55:42 +0200
+date: 2021-04-28T21:55:42.000+02:00
 title: Die genaue Stunde
 
 ---
@@ -18,7 +18,7 @@ An die aufgewärmte Gebäudewand gelehnt schließe ich die Augen, spüre keinen 
 ![](/uploads/dach3.jpg)
 
 Dieses Gebäude wird bald weg sein. Die Wand an der ich lehne und alles dahinter, darunter und darin. Es ist ein Jammer, denn es ist ein gutes Haus.  
-Gebaut in den 70'ern, voller Fehler, voller Ineffizienz. Teppiche in den Fluren und Teppiche in den Büros. Verschwenderisch in der Bemessung und protzend, wo es niemand sieht. Als sollte jede Schreibkraft sich als Herrin ihres Korridors fühlen. Beinfreiheit und lederne Freischwinger, Sitzgruppen und Einzelzimmern, dunkles Holz und dunkler Stein vor schwer ins Schloss fallenden Türen,  dahinter Archive und verschwiegene Lichthöfe.
+Gebaut in den 70'ern, voller Fehler, voller Ineffizienz. Teppiche in den Fluren und Teppiche in den Büros. Verschwenderisch in der Bemessung und protzend, wo es niemand sieht. Als sollte jede Schreibkraft sich als Herrin ihres Korridors fühlen. Beinfreiheit und lederne Freischwinger, Sitzgruppen und Einzelzimmer, dunkles Holz und dunkler Stein vor schwer ins Schloss fallenden Türen,  dahinter Archive und verschwiegene Lichthöfe.
 
 Der Abriss kommt. Er ist beschlossen, bezahlt und durch alle Instanzen gegangen. Er verzögert sich zwar und gibt mir Gelegenheit hier noch eine Weile rumzustehen, doch kommen wird er, wie das Update, auch wenn die Stunde, in der es passiert, eine Überraschung ist.  Ein bisschen Verblüffung. Der Abend, an dem  wir tatsächlich die Mäntel vom Haken nehmen und gehen.
 
