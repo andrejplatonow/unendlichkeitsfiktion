@@ -23,12 +23,21 @@ plugins:
 author:
   bio: Blogroll
   links:
+  - label: ''
+    icon: ''
+    url: ''
+  - label: 'Kreuzberg '
+    icon: ''
+    url: https://kreuzbergsuedost.wordpress.com/
   - label: Au fil des mots
     icon: ''
     url: http://aufildesmots.biz/
   - label: Buddenbohm
     icon: fas fa-fw fa-link
     url: https://www.buddenbohm-und-soehne.de/
+  - label: Goncourt
+    icon: ''
+    url: http://goncourt.net/Blog/
   - label: Hotel
     icon: ''
     url: http://hotelmama.it/
