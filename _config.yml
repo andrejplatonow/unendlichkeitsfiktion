@@ -23,9 +23,6 @@ plugins:
 author:
   bio: Blogroll
   links:
-  - label: ''
-    icon: ''
-    url: ''
   - label: Au fil des mots
     icon: ''
     url: http://aufildesmots.biz/
