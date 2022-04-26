@@ -1,4 +1,5 @@
-url: "https://unendlichkeitsfiktion.de"
+---
+url: https://unendlichkeitsfiktion.de
 repository: unendlichkeitsfiktion/andrejplatonow.github.io
 title: Unendlichkeitsfiktion
 search: true
@@ -8,11 +9,10 @@ minimal_mistakes_skin: custom
 permalink: "/:categories/:title/"
 paginate: "10"
 paginate_path: "/page:num/"
-timezone: "DE"
-locale: "de-DE"
+timezone: DE
+locale: de-DE
 include:
 - _pages
-
 plugins:
 - jekyll-paginate
 - jekyll-sitemap
@@ -20,23 +20,22 @@ plugins:
 - jekyll-feed
 - jemoji
 - jekyll-include-cache
-
 author:
   bio: Blogroll
   links:
+  - label: Hotel
+    icon: ''
+    url: http://hotelmama.it/
   - label: Buddenbohm
     icon: fas fa-fw fa-link
     url: https://www.buddenbohm-und-soehne.de/
   - label: Wieselblog
     icon: fas fa-fw fa-link
     url: https://wieselblog.wordpress.com/
-    
 footer:
   links: []
-
 atom_feed:
   hide: true
-
 defaults:
 - scope:
     path: ''
@@ -66,16 +65,10 @@ defaults:
     header:
       image: "/assets/images/mond.jpg"
       imagehome: true
-
 date_format: "%d.%m.%Y"
-
 comments:
-  provider  : "custom"
- 
-# HTML Compression
-# https://jch.penibelst.de/
+  provider: custom
 compress_html:
   clippings: all
   ignore:
     envs: development
- 
