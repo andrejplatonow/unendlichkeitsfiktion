@@ -70,10 +70,7 @@ defaults:
 date_format: "%d.%m.%Y"
 
 comments:
-  provider  : "staticman_v2"
-  staticman:
-    branch    : "master"
-    endpoint  : "https://staticman.xn--ssch-loa.de/v3/entry/github/"
+  provider  : "custom"
  
 # HTML Compression
 # https://jch.penibelst.de/
