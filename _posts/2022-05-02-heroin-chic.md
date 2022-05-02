@@ -1,6 +1,6 @@
 ---
-date: 2022-05-02T00:00:00.000+02:00
-title: Heroin chic
+date: 2022-05-02 21:30:34 +0200
+title: 'Heroin chic '
 
 ---
 Mitte der Neunziger sahen Models, die durch Zeitschriften und Musikvideos schlichen, häufig aus, als kämen sie gerade vom Magenauspumpen. Erscheinungen von Mangelernährung und Selbstverletzungsnarben waren dann auch der erste Eintrag, den ich als Fünfzehnjährige in meinem internen Orientierungskatalog unter Schönheitsideal ablegte. Die am Rand der Suizidalität entlang kuratierte Ästhetik wich, wenn ich mich recht erinnere, erst in den Nullerjahren einem etwas stabiler wirkenden Frauenbild. Ich hielt mich spätestens mit Anfang Dreißig für eindeutig genesen von dieser frühen Sehstörung.
