@@ -12,7 +12,7 @@ fields:
   label: date
   config:
     date_format: DD.MM.YYYY
-    time_format: hh:mm
+    time_format: ''
     required: true
     export_format: ''
   default: now
