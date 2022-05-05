@@ -3,7 +3,7 @@ date: 2022-05-05T17:21:10.000+02:00
 title: Hibi
 
 ---
-Ich habe lange nicht wahrhaben wollen, wie kompliziert ich geworden bin. Rund zehn Jahre habe ich damit zugebracht zu hoffen, es gehe vorüber. Wenn Freunde davon berichteten, zum Zwecke ihrer Yogaausbildung oder im Rahmen eines Engagements in der Entwicklungshilfe monatelang mit zwanzig Personen und null Privatsphäre in einem Raum auf dem Boden geschlafen zu haben, glomm in mir gegen alle Vernunft der leise Wunsch, dazu auch einmal in der Lage zu sein.
+Ich habe lange nicht wahrhaben wollen, wie kompliziert ich geworden bin. Rund zehn Jahre brachte ich damit zu, zu hoffen, es gehe vorüber. Wenn Freunde davon berichteten, zum Zwecke ihrer Yogaausbildung oder im Rahmen eines Engagements in der Entwicklungshilfe monatelang mit zwanzig Personen und null Privatsphäre in einem Raum auf dem Boden geschlafen zu haben, glomm in mir gegen alle Vernunft der leise Wunsch, dazu auch einmal in der Lage zu sein.
 
 ![](/uploads/tgv.jpg)
 
