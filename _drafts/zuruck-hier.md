@@ -1,6 +1,6 @@
 ---
 date: 2022-05-08T11:40:51.000+02:00
-title: Vor und zurück. Pendeln.
+title: Vor und zurück
 
 ---
 Viel Regen und daher Gelegenheit, drinnen zu sein. Lernen. Die Lust, es nicht gehetzt tun zu müssen. Sekundärliteratur lesen, zwanzig Minuten aus dem Fenster starren, die neuen Informationen mit den alten abgleichen.  
