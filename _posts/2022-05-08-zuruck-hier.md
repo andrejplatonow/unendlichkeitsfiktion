@@ -13,6 +13,6 @@ Im Wald den Barfußpfad gegangen. Ich in Barfußschuhen (he he), das Kind des Br
 Der ganze Sektor der eigenen Ohnmacht, Unsicherheit, Wackeligkeit. Die Passage der Angst, die ich durchlaufe. Jedes Mal wieder diese Passage, um in die nächste Weite zu kommen.
 
 Ich, die ich wirklich rein gar nichts von Mode verstehe, schaue zur Unterhaltung und vor dem Einschlafen die US -amerikanischen Designer-Castingshows. Frauen und Männer, die antreten "the next global brand" zu werden  (ha ha).  
-Erfreulicherweise finden sich unter den Belgiern, Kolumbianerinnen, Italienern und Amerikanerinnen manchmal auch Personen im fortgeschrittenen Alter, die drei Jahrzehnte Arbeitsleben auf dem Buckel haben. Wie die immer schwarz gekleidete und sanft lächelnde Esther Perbandt, die in stressigen Situationen über ihren Entwürfe gebeugt murmelt: Everything I want is on the other side of fear.
+Erfreulicherweise finden sich unter den Belgiern, Kolumbianerinnen, Italienern und Amerikanerinnen manchmal auch Personen im fortgeschrittenen Alter, die drei Jahrzehnte Arbeitsleben auf dem Buckel haben. Wie die immer schwarz gekleidete und sanft lächelnde Esther Perbandt, die in stressigen Situationen über ihre Entwürfe gebeugt murmelt: Everything I want is on the other side of fear.
 
 Neben der Handwerkskunst sind es diese gezeichneten und sicher mehrfach gescheiterten Gesichter, die mich so hervorragend unterhalten und scheinbar auch sedieren - ich schlafe ruhig und eingebettet im Gemurmel der wankend vorwärtsschreitenden Mitmenschen.
