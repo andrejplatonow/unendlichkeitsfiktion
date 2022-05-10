@@ -7,6 +7,6 @@ Nach einem durchgetakteten Tag hinter diesen Mädchen zum Stehen gekommen. Ihre 
 
 ![](/uploads/gleich.jpg)
 
-Die Version der Erwachsenen. Eine Winternacht vor Corona. Wir treten aus der Bar, frieren, ziehen die Mützen auf und sehen so aus:
+Die Version der Erwachsenen. Eine Winternacht vor Corona. Wir treten aus der Bar, frieren, ziehen die Mützen auf und sehen dann so aus:
 
 ![](/uploads/alle-gleich.jpg)
