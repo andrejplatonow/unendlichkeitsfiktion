@@ -19,22 +19,12 @@ Es fehlt mir - das Polster meiner Kompetenz.
 
 Ich bin unglücklich. Ich will nicht sein, aber es ist so.
 
-Am Abend des ersten Tages mit der neuen Aufgabe liege ich zermatscht im Bett und gräme mich. Gräm, gräm, gräm. Ich weiß, das kann jetzt stundenlang so weitergehen. Um das zu verhindern fahre ich die Antennen aus. Kurz ist es still. Dann höre ich Gott oder mich oder Beppo Straßenkehrer in meinem Kopf - wie wir sagen:
+Am Abend des ersten Tages mit der neuen Aufgabe liege ich zermatscht im Bett und gräme mich. Gräm, gräm, gräm. Ich weiß, das kann jetzt stundenlang so weitergehen. Um das zu verhindern fahre ich die Antennen aus. Eine Weile ist es still. Dann höre ich Gott oder mich oder Beppo Straßenkehrer in meinem Kopf - wie wir sagen:
 
-Nicht den ganzen Weg anschauen.
+Nicht den ganzen Weg anschauen. Immer nur den nächsten Schritt. Schritt, Atem, Besenstrich.
 
-Immer nur den nächsten Schritt.
+Es ist simpel. Aber tröstet. Wir drei im Chor. Zermatscht und Street wise. Diejenigen, für die ich ab heute Akten wälze haben mehr verloren als ihre kleine private Kompetenz. Ich weiß nicht, wer in ihrem Kopf mit welchen Worten spricht. Ob noch jemand spric
 
-Schritt, Atem, Besenstrich.
-
-Es ist simpel. Aber tröstet. Und ich bin nicht wählerisch bei Trost.
-
-Diejenigen, für die wir es tun, haben mehr verloren als ihre kleine private Kompetenz.
-
-Ich weiß nicht, wer in ihrem Kopf mit welchen Worten spricht. Ob noch jemand spricht.
-
-Wenn ich nach einer Reihe von anstrengenden Tagen 
-
-Ich sehe 5. 
+Ich sehe 5.
 
 Nachdem ich es den ganzen Tag vergessen hatte fällt mir am Abend ein, dass ich von einem Kornblumenfeld geträumt habe.
