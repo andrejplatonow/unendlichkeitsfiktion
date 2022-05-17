@@ -11,20 +11,14 @@ Die Verwandlung kommt nicht von selbst. Selten kommt sie von selbst. Fast immer 
 
 Ich tue dies nicht zur Leibesertüchtigung. Ich mache keine Gipfel. Ich mache keinen Berg.
 
-Die neue Aufgabe kommt. Sie ist schlimmer als erwartet, komplexer und verlangt mehr als ich zu geben bereit bin. Ich muss mein Team verlassen, meine Institution, in ein anderes Unternehmen wechseln, ob für 3 Monate, 6 Monate oder länger bleibt unklar. Ich bekomme eine Ordner mit Gesetzestexten, einen mit Verfahrensregeln, einen zur Aktenkunde und 25 neue Kollegen, die im Schnelldurchlauf Fachwissen in mich frachten. Es trifft mich und einige weitere Mitarbeiter*innen. Es ist eine Ausnahmesituation, eine Krise, ein Krieg und wir sind abrufbar für solche Fälle.
+Die neue Aufgabe kommt. Sie ist aufreibend, komplex und verlangt mehr als ich ursprünglich geben wollte. Ich verabschiede mich von meinem Team, meiner Institution, wechsel in ein anderes Unternehmen, ob für 3 Monate, 6 Monate oder länger bleibt unklar. Am neuen Schreibtisch bekomme ich einen Ordner mit Gesetzestexten, einen mit Verfahrensregeln, einen zur Aktenkunde und 5 neue Kollegen, die im Schnelldurchlauf Fachwissen in mich frachten. Es trifft mich und einige weitere Mitarbeiter*innen. Es ist eine Ausnahmesituation, eine Krise, ein Krieg und wir sind abrufbar für solche Fälle.
 
-Was ich im letzten Jahr erworben habe, hat ab hier keine Bedeutung mehr: Transliterationen des griechischen Alphabets, die Besonderheiten türkischer Publikationen, Abgründe der Etatansetzung und die Meisterung derselben.
+Was ich im letzten Jahr erworben habe, hat ab hier keine Bedeutung mehr: Transliterationen des griechischen Alphabets, die ich mir so liebevoll und geduldig beigebracht habe, Besonderheiten türkischer Verlage, Abgründe der Etatansetzung und die Meisterung derselben. Es fehlt mir - das Polster meiner Kompetenz. Ich bin unglücklich und die häufigen Umbrüche etwas leid. Am Abend des ersten Tages mit der neuen Aufgabe liege ich zermatscht im Bett und gräme mich. Ich halte jammern und murren für gesund, ich pflege meine Bequemlichkeit und füge mich nicht ohne Aufstand in einen neuen Umstand. Ich weiß aber auch, dass die Grämerei stundenlang so weitergehen kann. Eine Weile lieg ich so mit meinem Gram im Bett und schau ihm in die Augen. Dann höre ich Gott oder mich oder Beppo Straßenkehrer - wie wir sagen:
 
-Es fehlt mir - das Polster meiner Kompetenz.
+Nicht den ganzen Weg anschauen. Nur den nächsten Schritt.          Schritt, Atem, Besenstrich.
 
-Ich bin unglücklich. Ich will nicht sein, aber es ist so.
+Es ist simpel. Aber tröstet. Wir drei im Chor. Zermatscht und street wise. Mein Gram 
 
-Am Abend des ersten Tages mit der neuen Aufgabe liege ich zermatscht im Bett und gräme mich. Gräm, gräm, gräm. Ich weiß, das kann jetzt stundenlang so weitergehen. Um das zu verhindern fahre ich die Antennen aus. Eine Weile ist es still. Dann höre ich Gott oder mich oder Beppo Straßenkehrer in meinem Kopf - wie wir sagen:
-
-Nicht den ganzen Weg anschauen. Immer nur den nächsten Schritt. Schritt, Atem, Besenstrich.
-
-Es ist simpel. Aber tröstet. Wir drei im Chor. Zermatscht und Street wise. Diejenigen, für die ich ab heute Akten wälze haben mehr verloren als ihre kleine private Kompetenz. Ich weiß nicht, wer in ihrem Kopf mit welchen Worten spricht. Ob noch jemand spric
-
-Ich sehe 5.
+Diejenigen, für die ich ab heute Akten wälze haben mehr verloren als ihre kleine private Kompetenz. Ich weiß nicht, wer in ihrem Kopf mit welchen Worten spricht. Ob noch jemand spric
 
 Nachdem ich es den ganzen Tag vergessen hatte fällt mir am Abend ein, dass ich von einem Kornblumenfeld geträumt habe.
