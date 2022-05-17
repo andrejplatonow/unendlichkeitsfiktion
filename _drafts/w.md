@@ -23,4 +23,4 @@ Diejenigen, für die ich ab heute Akten wälze haben mehr verloren als ihre klei
 
 Nachdem ich es den ganzen Tag vergessen hatte fällt mir am Abend ein, dass ich von einem Kornblumenfeld geträumt habe.
 
-Am anderen Tag sind wir im Gebirge, die Murmeltiere pfeifen die Hänge runter, eine Gams sieht uns lange an, bevor sie durch den Schnee ins Tal trabt. Es ist eine solche Üppigkeit an Freundschaft und Blumen. 
+Am anderen Tag sind wir im Gebirge, die Murmeltiere pfeifen die Hänge runter, eine Gams sieht uns lange an, bevor sie durch den Schnee ins Tal trabt. Es ist eine solche Üppigkeit an Freundschaft und Blumen. Es scheint kleinlichen, wegen einer neuen Aufgabe unglücklich zu sein.
