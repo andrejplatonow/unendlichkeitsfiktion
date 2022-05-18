@@ -1,8 +1,9 @@
 ---
-date: 2022-05-17 07:52:46 +0200
-title: W.
+date: 2022-05-17T07:52:46.000+02:00
+title: W
 
 ---
+![](/uploads/pxl_20220515_121646754_1_1.jpg)
 
 Die neue Aufgabe. Sie ist aufreibend, komplex und verlangt mehr als ich ursprünglich geben wollte. Ich verabschiede mich von meinem Team, meiner Institution, wechsel in ein anderes Unternehmen, ob für 3 Monate, 6 Monate oder länger bleibt unklar. Am neuen Schreibtisch bekomme ich einen Ordner mit Gesetzestexten, einen mit Verfahrensregeln, einen zur Aktenkunde und 5 Kollegen, die im Schnelldurchlauf Fachwissen in mich frachten. Es trifft mich und viele andere Mitarbeiterinnen. Es ist eine Ausnahmesituation und wir sind abrufbar. Was ich im letzten Jahr erworben habe, hat keine Bedeutung mehr: Transliterationen des griechischen Alphabets, Besonderheiten türkischer Verlage, Abgründe der Etatansetzung und die Meisterung derselben. Es fehlt mir - das Polster meiner Kompetenz. Ich bin unglücklich und die häufigen Umbrüche leid. Am Abend des ersten Tages mit der neuen Aufgabe liege ich zermatscht im Bett und gräme mich. Jammern ist gesund, ich glaube, mich damit anteilig von meiner Neurodermitis geheilt zu haben. Ich pflege meine Bequemlichkeit und füge mich nicht ohne Aufstand in einen neuen Umstand. Eine Weile liege ich so. Dann höre ich Beppo Straßenkehrer  oder Gott oder mich - wie wir sagen:
 
@@ -12,4 +13,6 @@ Es ist simpel und tröstet. Wir drei im Chor. Zermatscht und street wise. Mein G
 
 Am anderen Tag sind wir im Gebirge, die Murmeltiere pfeifen die Hänge runter, eine Gams sieht uns lange an, bevor sie durch den Schnee ins Tal trabt. Eine einzige Üppigkeit an Freundschaft und Blumen breitet sich aus. In einer besonders heißen Serpentine aufwärts bleiben wir stehen unter ätherisch duftenden Latschenkiefern. Wir sind zu sehr außer Atem, um etwas zu sagen. Stehen da nur in stummer Vereintheit. Große Landschaften sind ja wie gemacht dafür, alles wieder ins rechte Licht zu rücken.
 
-Vor diesem Hintergrund scheint es kleinlich, wegen einer neuen Aufgabe unglücklich zu sein. Aber ich will nicht herabsehen auf mich. Und jedes Gefühl in mir unterbringen. 
+Vor diesem Hintergrund scheint es kleinlich, wegen einer neuen Aufgabe unglücklich zu sein. Aber ich will nicht herabsehen auf mich. Und jedes Gefühl in mir unterbringen.
+
+![](/uploads/pxl_20220515_103550272_1_1.jpg)
