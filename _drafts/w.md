@@ -7,9 +7,7 @@ title: Kooperation
 
 Die neue Aufgabe. Sie ist aufreibend, komplex und verlangt mehr als ich ursprünglich geben wollte. Ich verabschiede mich von meinem Team, meiner Institution, wechsel in ein anderes Unternehmen, ob für 3 Monate, 6 Monate oder länger bleibt unklar. Am neuen Schreibtisch bekomme ich einen Ordner mit Gesetzestexten, einen mit Verfahrensregeln, einen zur Aktenkunde und 5 Kollegen, die im Schnelldurchlauf Fachwissen in mich frachten. Es trifft mich und viele andere Mitarbeiterinnen. Es ist eine Ausnahmesituation und wir sind abrufbar. Was ich im letzten Jahr erworben habe, hat keine Bedeutung mehr: Transliterationen des griechischen Alphabets, Besonderheiten türkischer Verlage, Abgründe der Etatansetzung und die Meisterung derselben. Es fehlt mir - das Polster meiner Kompetenz. Ich bin unglücklich und die häufigen Umbrüche leid. Am Abend des ersten Tages mit der neuen Aufgabe liege ich zermatscht im Bett und gräme mich. Jammern ist gesund. Ich glaube, mich damit anteilig von meiner Neurodermitis geheilt zu haben. Ich pflege meine Bequemlichkeit und füge mich nicht ohne Aufstand in einen neuen Umstand. Eine Weile liege ich so. Dann höre ich Beppo Straßenkehrer  oder Gott oder mich - wie wir sagen:
 
-Nicht den ganzen Weg anschauen. Nur den nächsten Schritt.        
-
-Schritt, Atem, Besenstrich.
+Nicht den ganzen Weg anschauen. Nur den nächsten Schritt.        Schritt, Atem, Besenstrich.
 
 Es ist simpel und tröstet. Wir drei im Chor. Zermatscht und street wise. Mein Gram legt den Kopf an meine Schulter. Ich schlafe ein und träume von Papier. 
 
