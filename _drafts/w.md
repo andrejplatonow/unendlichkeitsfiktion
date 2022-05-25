@@ -5,6 +5,6 @@ title: W.
 ---
 Woschtschew nahm in der Wohnung seine Sachen in einen Sack und ging nach draußen, um an der Luft seine Zukunft besser zu verstehen.
 
-\[Die Baugrube, Seite 1, Andrej Platoniw\]
+\[Die Baugrube, Andrej Platonow\]
 
 ![](/uploads/signal-2021-10-09-200625-3.jpg)
