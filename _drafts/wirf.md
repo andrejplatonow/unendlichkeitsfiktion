@@ -6,8 +6,7 @@ title: Wirf dein Hab und Gut aufs Meer. Vielleicht kommt es zurück zu dir
 Seit einer Weile fällt es mir auf, dass ich Kontrolle haben will. Wie sehr ich sie will. Wie nötig es lange war, für alles gewappnet zu sein, in charge. Dass ich nicht anders konnte, als mich zu kontrollieren. Soweit es ging, die Umstände zu steuern.
 
 ![](/uploads/pxl_20220527_142002847.jpg)  
-Ich bin müde geworden von dieser Übersteuerung. Unangenehm fest.  
-Ich kann es noch nicht ändern. Aber ich merke auf.
+Ich bin müde geworden von dieser Übersteuerung. Unangenehm fest. Ich kann es noch nicht ändern. Aber ich merke auf.
 
 ![](/uploads/pxl_20220527_102642005.jpg)
 
