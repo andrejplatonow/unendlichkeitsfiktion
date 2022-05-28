@@ -17,7 +17,8 @@ Es hilft, am Wasser zu sitzen. An Gras, das sich bewegt wie Wasser. Einen gefloc
 
 Manchmal ist es dann okay. Ohnmächtig zu sein vor diesem Leben. Ohne Macht. Es zu nehmen, wie es es ist. Auch mich. 
 
-![](/uploads/pxl_20220527_133151488_1_1.jpg)  
+![](/uploads/pxl_20220527_133151488_1_1.jpg)
+
 Und als wäre das nicht genug trifft man sogar andere. Andere, die auch taumeln, gehen, schleppen. Ihr Hab und Gut - sich selber werfen.
 
 Vielleicht komm ich zurück zu mir.
