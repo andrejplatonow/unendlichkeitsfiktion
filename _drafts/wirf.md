@@ -11,9 +11,7 @@ Ich bin müde geworden von dieser Übersteuerung. Unangenehm fest. Ich kann es n
 ![](/uploads/pxl_20220527_102642005.jpg)  
 Es hilft, am Wasser zu sitzen. An Gras, das sich bewegt wie Wasser. Einen geflochtenen Kranz auf dem Kopf eines Kindes durch die Landschaft spazieren zu sehen. Und den Kranz später am Tag abzugeben.
 
-### ![](/uploads/pxl_20220527_133211386.jpg)
-
-Manchmal ist es dann okay. Ohnmächtig zu sein vor diesem Leben. Ohne Macht. Es zu nehmen, wie es es ist. Auch mich. 
+![](/uploads/pxl_20220527_133211386.jpg)Manchmal ist es dann okay. Ohnmächtig zu sein vor diesem Leben. Ohne Macht. Es zu nehmen, wie es ist. Auch mich.
 
 ![](/uploads/pxl_20220527_133151488_1_1.jpg)
 
