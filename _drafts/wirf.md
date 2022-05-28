@@ -8,8 +8,7 @@ Seit einer Weile fällt es mir auf, dass ich Kontrolle haben will. Wie sehr ich 
 ![](/uploads/pxl_20220527_142002847.jpg)  
 Ich bin müde geworden von dieser Übersteuerung. Unangenehm fest. Ich kann es noch nicht ändern. Aber ich merke auf.
 
-![](/uploads/pxl_20220527_102642005.jpg)
-
+![](/uploads/pxl_20220527_102642005.jpg)  
 Es hilft, am Wasser zu sitzen. An Gras, das sich bewegt wie Wasser. Einen geflochtenen Kranz auf dem Kopf eines Kindes durch die Landschaft spazieren zu sehen. Und den Kranz später am Tag abzugeben.
 
 ### ![](/uploads/pxl_20220527_133211386.jpg)
