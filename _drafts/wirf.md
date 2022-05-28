@@ -15,6 +15,4 @@ Es hilft, am Wasser zu sitzen. An Gras, das sich bewegt wie Wasser. Einen gefloc
 
 ![](/uploads/pxl_20220527_133151488_1_1.jpg)
 
-Und als wäre das nicht genug trifft man sogar andere. Andere, die auch taumeln, gehen, schleppen. Ihr Hab und Gut - sich selber werfen.
-
-Vielleicht komm ich zurück zu mir.
+Und als wäre das nicht genug trifft man sogar andere. Andere, die auch taumeln, gehen, schleppen. Ihr Hab und Gut - sich selber werfen. Vielleicht komm ich zurück zu mir.
