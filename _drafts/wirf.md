@@ -18,8 +18,8 @@ An die kleinen Kontrollverluste versuche ich mich zu gewöhnen. Mitzuschwimmen, 
 
 Von Montags bis Mittwochs habe ich nun mit Fiktionsbescheinigungen zu tun. Die Behörde, in der ich aushelfe, presst weiterhin im Eilverfahren Wissen in mich hinein. Die Ukrainer, die mir später am Tag gegenüber sitzen, sind auf dieses Wissen angewiesen und pressen es wieder aus mir herraus. Alles, was ich sagen kann ist unvollständig und eigentlich nicht genug und nur mit akutem Mitarbeitermangel in einer Krisensituation zu rechtfertigen.
 
-Mütter schaukeln Kinder im Arm, während wir nach 45 Minuten immer noch weitere Nachweise wollen; für das Mittagessen in der Schule, für noch nicht erhaltene Versichertennummern und Nebenkostenaufstellungen  im Untermietvertrag der temporären Unterkunft. Dennoch: die Ukrainer kommen vorbildlich vorbereitet zu den Terminen, legen ihre gut sortierten Dokumentenmappen auf den Tisch, werfen sich auf den Arbeitsmarkt, auf den Wohnungsmarkt, in die Sprachkurse, in das Dickicht der Verfahren. 
+Die Mütter schaukeln Kinder im Arm, während wir nach 45 Minuten immer noch weitere Nachweise von ihnen wollen; für das Mittagessen in der Schule, für noch nicht erhaltene Versichertennummern und Nebenkostenaufstellungen  im Untermietvertrag der temporären Unterkunft. Dennoch: die Ukrainer kommen vorbildlich vorbereitet zu den Terminen, legen ihre gut sortierten Dokumentenmappen auf den Tisch, werfen sich auf den Arbeitsmarkt, auf den Wohnungsmarkt, in die Sprachkurse, in das Dickicht der Verfahren. 
 
 ***
 
-Mir vertrocknen die Augen. Ich träume weiterhin jede Nacht von Papier. Von Gesetzen, die greifen, wenn andere nicht greifen, von der Stimme der Dolmetscherin, dem steten Strom der zwei Sprachen.
+Mir vertrocknen die Augen. Ich träume  immer noch jede Nacht von Papier. Von Gesetzen, die greifen, wenn andere nicht greifen, von der Stimme der Dolmetscherin, dem steten Strom der zwei Sprachen.
