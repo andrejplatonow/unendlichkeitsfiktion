@@ -3,11 +3,6 @@ date: 2022-05-28T21:00:39.000+02:00
 title: Wirf dein Hab und Gut aufs Meer. Vielleicht kommt es zurück zu dir
 
 ---
-Ich habe nun jeden Tag mit Fiktionsbescheinigungen zu tun. Die Behörde, in der ich aushelfe, quetscht weiterhin im Eilverfahren Wissen in mich hinein. Die Ukrainer, die mir später am Tag gegenüber sitzen, quetschen das Wissen wieder aus mir raus. Es ist alles unvollständig und fühlt sich dilettantisch an und ist nur mit akutem Mitarbeitermangel in einer Krisensituation zu rechtfertigen.
-
-Mütter schaukeln Kinder im Arm, während wir nach 45 Minuten immer noch weitere Nachweise wollen; für das Mittagessen in der Schule, für noch nicht erhaltene Versichertennummern und Nebenkostenaufstellungen  im Untermietvertrag der temporären Unterkunft. Dennoch: die Ukrainer kommen vorbildlich vorbereitet zu den Terminen, legen ihre gut sortierten Dokumentenmappen auf den Tisch, werfen sich auf den Arbeitsmarkt, auf den Wohnungsmarkt, in die Sprachkurse, in das Dickicht der Verfahren. 
-
-Mir bluten die Augen. Ich träume weiterhin jede Nacht von Papier. Von Gesetzen, die greifen, wenn andere nicht greifen, von der Stimme der Dolmetscherin, den steten Strom fremder Sprache.
 
 ![](/uploads/pxl_20220527_102642005.jpg)
 
@@ -20,3 +15,11 @@ Die Abstufungen des Ausgeliefertseins beschäftigen mich. Die kleinen Kontrollve
 ![](/uploads/pxl_20220527_133151488_1.jpg)
 
 An die kleinen Kontrollverluste versuche ich mich zu gewöhnen. Mitzuschwimmen, wenn möglich. Die Ohnmacht hingegen.
+
+Von Montags bis Mittwochs habe ich nun mit Fiktionsbescheinigungen zu tun. Die Behörde, in der ich aushelfe, presst weiterhin im Eilverfahren Wissen in mich hinein. Die Ukrainer, die mir später am Tag gegenüber sitzen, sind auf dieses Wissen angewiesen und pressen es wieder aus mir herraus. Es ist alles unvollständig und eigentlich nicht genug und nur mit akutem Mitarbeitermangel in einer Krisensituation zu rechtfertigen.
+
+Mütter schaukeln Kinder im Arm, während wir nach 45 Minuten immer noch weitere Nachweise wollen; für das Mittagessen in der Schule, für noch nicht erhaltene Versichertennummern und Nebenkostenaufstellungen  im Untermietvertrag der temporären Unterkunft. Dennoch: die Ukrainer kommen vorbildlich vorbereitet zu den Terminen, legen ihre gut sortierten Dokumentenmappen auf den Tisch, werfen sich auf den Arbeitsmarkt, auf den Wohnungsmarkt, in die Sprachkurse, in das Dickicht der Verfahren. 
+
+***
+
+Mir vertrocknen die Augen. Ich träume weiterhin jede Nacht von Papier. Von Gesetzen, die greifen, wenn andere nicht greifen, von der Stimme der Dolmetscherin, dem steten Strom der zwei Sprachen.
