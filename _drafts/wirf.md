@@ -16,10 +16,12 @@ Die Abstufungen des Ausgeliefertseins beschäftigen mich. Die kleinen Kontrollve
 
 An die kleinen Kontrollverluste versuche ich mich zu gewöhnen. Mitzuschwimmen, wenn möglich. Die Ohnmacht hingegen. 
 
-![](/uploads/morgen-nebel.jpg)
-
 Fiktionsbescheinigungen. Die Behörde, in der ich aushelfe, presst weiterhin im Eilverfahren Wissen in mich hinein. Die Ukrainer, die mir später am Tag gegenüber sitzen, sind auf dieses Wissen angewiesen und pressen es wieder aus mir herraus. Alles, was ich sagen kann ist unvollständig und eigentlich nicht genug und nur mit akutem Mitarbeitermangel in einer Krisensituation zu rechtfertigen.
 
 Die Mütter schaukeln Kinder im Arm, während wir nach 45 Minuten immer noch weitere Nachweise von ihnen wollen; für das Mittagessen in der Schule, für noch nicht erhaltene Versichertennummern und Nebenkostenaufstellungen  im Untermietvertrag der temporären Unterkunft. Dennoch: die Ukrainer kommen vorbildlich vorbereitet zu den Terminen, legen ihre gut sortierten Dokumentenmappen auf den Tisch, werfen sich auf den Arbeitsmarkt, auf den Wohnungsmarkt, in die Sprachkurse, in das Dickicht der Verfahren. 
+
+![](/uploads/morgen-nebel.jpg)
+
+Ob sich eine Art Vertrautheit einstellen kann? 
 
 ***
