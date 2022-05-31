@@ -7,6 +7,15 @@ Ich habe nun jeden Tag mit Fiktionsbescheinigungen zu tun. Die Behörde, in der 
 
 Mütter schaukeln Kinder im Arm, während wir nach 45 Minuten immer noch weitere Nachweise wollen; für das Mittagessen in der Schule, zu verschwindend geringen Rentenansprüchen im Heimatland, Nebenkostenaufstellungen  im Untermietvertrag der temporären Unterkunft. Dennoch: die Ukrainer kommen vorbildlich vorbereitet zu den Terminen, legen ihre gut sortierten Dokumentenmappen auf den Tisch, werfen sich auf den Arbeitsmarkt, auf den Wohnungsmarkt, in die Sprachkurse, in das Dickicht der Verfahren. 
 
+Mir bluten die Augen. Ich träume weiterhin jede Nacht von Papier. Von Gesetzen, die greifen, wenn andere nicht greifen, von der Stimme der Dolmetscherin. 
+
+![](/uploads/pxl_20220527_142002847.jpg)
+
+Dann kommen Freunde. Wir gehen auf einen Berg. Wir gehen zum See. Wir sitzen im Gras, das sich im Wind bewegt wie Wasser. 
+
+  
+![](/uploads/pxl_20220527_102642005.jpg)
+
 ![](/uploads/pxl_20220527_142002847.jpg)
 
 ![](/uploads/pxl_20220527_133151488_1.jpg)Es ist noch nicht so weit. Aber schon sehr nah. Der Kontrollverlust, den ich so fürchte. Am Ende wird er mein Weg sein. Vielleicht komm ich zurück zu mir.
