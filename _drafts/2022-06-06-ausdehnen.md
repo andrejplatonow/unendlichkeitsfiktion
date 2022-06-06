@@ -5,8 +5,9 @@ title: Bleiben
 ---
 Nach den Tagen in der Behörde liege ich unaufgeräumt in der Wohnung und bin zu nichts in der Lage. Draußen feucht warm. Es wächst Farn. Ich unterlasse es, zu lernen, mit meiner freien Zeit etwas anzufangen. Am Samstag hebe ich mich auf und fahre in die Stadt. Vor der Ludwigskirche hängen transparte Fahnen. Eine blaue Kugel vor durchsichtigem Grund. Neben den vielen hässlichen Flaggen auf dieser Welt, existieren also auch noch ein paar ganz schöne.
 
-![](/uploads/ludwigskirche.jpg)  
-Die Nacht wird lang. Im Hirschgarten sitze ich mit Freunden um ein Grillfeuer und esse Frühingsrollen. Je dichter die Dunkelheit desto näher fühle ich mich den Menschen. Ich brauche dazu keinen Alkohol. Das war nicht immer so. Beides haben zu können - Verbindung zu mir und Verbindung zu anderen - das ist der große Rausch, nach dem ich so lange gesucht habe. Er ist nicht verfügbar, dieser Rausch, er gehört mir nicht, ich kann ihn nicht herstellen. Mich lediglich bereit halten und konstant hinwenden zu mir.
+![](/uploads/ludwigskirche.jpg)
+
+Die Nacht wird lang. Im Hirschgarten sitze ich mit Freuden um ein Grillfeuer und esse Frühlingsrollen. Je dichter die Dunkelheit desto näher fühle ich mich den Menschen. Ich brauche dazu keinen Alkohol. Das war nicht immer so. Beides haben zu können - Verbindung zu mir und Verbindung zu anderen - das ist der große Rausch, nachdem ich so lange gesucht habe. Er ist nicht verfügabr, dieser Rausch, er gehört mir nicht, ich kann ihn nicht herstellen. Mich lediglich bereit halten und konstant hinwenden zu mir.
 
 ![](/uploads/himmel-n.jpg)  
 Unweit unseres Platzes auf der Wiese fasst sich eine Familie oder ein Familienverband an den Händen und tanzt einen folkloristischen Reigen. Ich glaube, es wäre okay, rüber zu gehen und mitzumachen.  
