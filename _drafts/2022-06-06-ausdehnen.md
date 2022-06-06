@@ -15,7 +15,7 @@ Der Mond ist eine Sichel. Das Gras kaum kühler als die aufgeheizte Luft. Die Du
 
 ![](/uploads/niko_pirosmani-_black_bear.jpg)
 
-Weiterhin beschäftige ich mich mit Ohnmacht. Hat sich ein Wort erst einmal Zutritt zu mir verschafft, geht es in der Regel auch die nächsten Monate nicht mehr weg. Es muss von allen Seiten benagt werden.  
+Weiterhin beschäftige ich mich mit Ohnmacht. Hat sich ein Wort erst einmal Zutritt verschafft, geht es in der Regel auch die nächsten Monate nicht mehr weg. Es muss von allen Seiten benagt werden.  
 Angefangen hat es im Februar mit der Ukraine. Dann im März der Tod von N. Dass ich ihn nicht am Leben erhalten konnte. Der Größenwahn, zu meinem, jemanden am Leben erhalten zu können. Gleichzeitig die simple Tatsache: Erwachsene haben Verantwortung für die Jüngeren. Punkt.
 
 Die verschwommene Erinnerung in der Stunde nach der Nachricht, im Kreis gelaufen zu sein. Auseinanderfallen.
