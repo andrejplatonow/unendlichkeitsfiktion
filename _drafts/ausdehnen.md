@@ -19,4 +19,4 @@ Die verschwommene Erinnerung in der Stunde nach der Nachricht im Kreis gelaufen 
 
 Jemand, der sich mit Ohnmacht auskennt, schreibt:   
 Auf Ohnmacht antworten wir gern mit Macht. Mit Aktivismus.  
-Ich erkenne in mir zwei Tendenzen. Aktivismus und Resignation. Versuche mich in der Mitte zu halten. Diese Spannung zu tragen.
+Ich erkenne in mir zwei Tendenzen. Aktivismus und Resignation. Versuche mich in der Mitte zu halten. Die Spannung zu halten. 
