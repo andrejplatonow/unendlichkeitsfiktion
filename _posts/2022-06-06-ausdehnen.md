@@ -31,6 +31,5 @@ Du könntest den Bergen die Adern aufschneiden,
 als Zeichen eines großen Gerichts.  
 Aber dir liegt nichts daran.  
 Sanften Gesichts siehst du   
-den Tragenden zu.  
-  
+den Tragenden zu.       
 \[Rilke\]
