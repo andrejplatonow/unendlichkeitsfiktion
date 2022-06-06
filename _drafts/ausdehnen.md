@@ -13,9 +13,10 @@ Unweit von unerem Platz auf der Wiese fasst sich eine Familie oder ein Familienv
 Der Mond ist eine Sichel. Das Gras angenehm kühl im Kontrast zur aufgeheizten Luft.
 
 ![](/uploads/niko_pirosmani-_black_bear.jpg)  
-Weiterhin beschäftige ich mich mit Ohnmacht. Dieses Wort, das sich Zutritt zu mir verschafft hat und das nun von allen Seiten benagt werden muss. Angefangen hat es vermutlich mit N. Dass wir ihn nicht am Leben erhalten konnten. Der Größenwahn in mir, zu meinem, jemanden am Leben erhalten zu können. Gleichzeitig die simple Tatsache: Erwachsene haben Verantwortung für die jüngeren. Punkt. 
+Weiterhin beschäftige ich mich mit Ohnmacht. Dieses Wort, das sich Zutritt zu mir verschafft hat und das nun von allen Seiten benagt werden muss. Angefangen hat es vermutlich mit N. Dass ich ihn nicht am Leben erhalten konnten. Der Größenwahn in mir, zu meinem, jemanden am Leben erhalten zu können. Gleichzeitig die simple Tatsache: Erwachsene haben Verantwortung für die jüngeren. Punkt. 
 
 Die verschwommene Erinnerung in der Stunde nach der Nachricht im Kreis gelaufen zu sein, einen Satz rufend. Auseinanderfallen.
 
 Jemand, der sich mit Ohnmacht auskennt, schreibt:   
-Auf Ohnmacht antworten wir gern mit Macht. Mit Aktivismus.
+Auf Ohnmacht antworten wir gern mit Macht. Mit Aktivismus.  
+Ich erkenne in mir zwei Tendenzen. Aktivismus und Resignation. Versuche mich in der Mitte zu halten. Diese Spannung zu tragen.
