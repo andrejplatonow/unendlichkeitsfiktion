@@ -27,7 +27,7 @@ author:
     icon: ''
     url: http://aufildesmots.biz/
   - label: 'Buddenbohm'
-    icon: fas fa-fw fa-link
+    icon: ''
     url: https://www.buddenbohm-und-soehne.de/
   - label: 'Goncourt'
     icon: ''
@@ -48,7 +48,7 @@ author:
     icon: ''
     url: http://mequito.org/
   - label: 'Wieselblog'
-    icon: fas fa-fw fa-link
+    icon: ''
     url: https://wieselblog.wordpress.com/
   - label: 'Wald und Höhle'
     icon: ''
