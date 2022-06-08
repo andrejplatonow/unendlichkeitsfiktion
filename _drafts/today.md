@@ -3,7 +3,7 @@ date: 2022-06-08 21:20:05 +0200
 title: Today
 
 ---
-Am Abend zieht Sturm auf. Die Pfingstrose ist kurz vorm Platzen. Ich glaube, sie braucht noch genau einen sonnigen Tag. Am Fenster habe ich eine Girlande aus Duftwicken gepflanzt. Ich lag im Mai einige Male betört unterm Fliederstrauch und ich werde im Juni einige Male betört meine Augen im Kelch der Wicken schließen.
+Am Abend zieht Sturm auf. Die Pfingstrose ist kurz vorm Platzen. Ich glaube, sie braucht noch genau einen sonnigen Tag. Entlang des Fensters habe ich eine Girlande aus Duftwicken gepflanzt. Ich lag im Mai einige Male betört unterm Fliederstrauch und ich werde im Juni einige Male betört meine Augen im Kelch der Wicken schließen.
 
 Ich bin hier angekommen, wie ein Loch, nach zwanzig Jahren City.  
 Zu keinem menschlichen Konakt gewillt. Außerhalb meines Freundeskreises wollte ich niemanden sehen, mit niemand sprechen, vor allem niemanden hören. Ich habe meine Nachbarn gehasst.
