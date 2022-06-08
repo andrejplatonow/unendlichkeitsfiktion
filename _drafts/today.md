@@ -14,4 +14,4 @@ Gestern sind beim Hof gegenüber die Lämmer ausgebüxt und auf die um diese Uhr
 
 Die zwei Alten sind scheu und misstrauisch. Ich habe sie schon einmal angesprochen, worauf sie verhuscht und etwas verkniffen reagiert haben. Ich traue mir dennoch zu, ihr Vertrauen zu gewinnen. Wer nachts mit 40 km/h durch den Wald fährt, um bremsbereit für wegquerende Füchse zu sein, ist auch im Stande das Herz einer greisen Catlady umzustimmen.
 
-Soviel habe ich jedenfalls gestern in Erfahrung gebracht: 2 der wilden Katzen sind im Frühling bei der Catlady eingezogen, die restlichen 3 bevorzugen es outdoor zwischen Schafstall und Trafohäuschen.
+Soviel habe ich jedenfalls gestern in Erfahrung gebracht: 2 der wilden Katzen sind im Frühling bei der Catlady eingezogen, die restlichen 3 präferieren den outdoor lifestyle zwischen Schafstall und Trafohäuschen.
