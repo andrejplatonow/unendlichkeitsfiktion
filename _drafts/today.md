@@ -5,8 +5,7 @@ title: Today
 ---
 Am Abend zieht Sturm auf. Die Pfingstrose ist kurz vorm Platzen. Ich glaube, sie braucht noch genau einen sonnigen Tag. Entlang des Fensters habe ich eine Girlande aus Duftwicken gepflanzt. Ich lag im Mai einige Male betört unterm Fliederstrauch und ich werde im Juni einige Male betört meine Augen im Kelch der Wicken schließen.
 
-Ich bin hier angekommen, wie ein Loch, nach zwanzig Jahren City.  
-Zu keinem menschlichen Konakt gewillt. Außerhalb meines Freundeskreises wollte ich niemanden sehen, mit niemand sprechen, vor allem niemanden hören. Ich habe meine Nachbarn gehasst.
+Ich bin hier angekommen, wie ein Loch, nach zwanzig Jahren City. Zu keinem menschlichen Konakt gewillt. Außerhalb meines Freundeskreises wollte ich niemanden sehen, mit niemand sprechen, vor allem niemanden hören. Ich habe meine Nachbarn gehasst.
 
 Weiter hinten ist unter meinen Händen versehentlich eine spießige Blume herangewachsen. Auf dem Foto im Bestettdatensatz sah sie nicht so aufdringlich und plump aus, doch um sie auszugraben ist es zu spät, sie gedeiht gut in den feuchten Ecke, wo sonst nur Schnecken und Blattläuse zurechtkommen.
 
