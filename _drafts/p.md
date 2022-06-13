@@ -13,7 +13,7 @@ Darin archiviert sind käsegelbe Vollmonde über Fichtenwäldern und bleich rosa
   
 Allerdings, der vielleicht wichtigste Archivmond befand sich vor einem Jahr in der französischen Provinz. Es hatte unter den Freunden den ganzen Tag über unterschiedliche Aussagen und Einschätzungen dazu gegeben, wann genau der Mond über diesem Dorf aufgehen würde. Eine Stunde harrten wir zu Neunt an der warmen Hauswand, um in der Sekunde des Aufgangs da zu sein. Wir waren da. Und schrien vor Glück, als er hochging.
 
-Ich habe ein bisschen Angst vor dem Tod. Es ist das gleiche Gefühl, das ich jedes mal vor einem Übergang spüre. Der Schritt in und durch das eigene Dunkel. Der Abschnitt, den jeder allein gehen muss. In dem es keine Ausflüchte mehr gibt. 
+Ich habe ein bisschen Angst vor dem Tod. Es ist das gleiche Gefühl, das ich jedes mal vor einem Übergang spüre. Der Schritt in und durch das eigene Dunkel. Der Abschnitt, den ich allein gehen muss. In dem es keine Ausflüchte mehr gibt. 
 
 Ich ahne/erkunde diese Unausweichlichkeit in dem gleichen Maß, wie ich meine Geburt noch irgendwo in mir ertasten kann. Der Anfang von mir. Wie ich mich hineingedreht habe in dieses Leben. Ausgeliefert und voller Bereitschaft.
 
