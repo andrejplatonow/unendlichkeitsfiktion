@@ -18,7 +18,6 @@ Ich habe ein bisschen Angst vor dem Tod. Es ist das gleiche Gefühl, das ich jed
 Ich ahne/erkunde diese Unausweichlichkeit in dem gleichen Maß, wie ich meine Geburt noch irgendwo in mir ertasten kann. Der Anfang von mir. Wie ich mich hineingedreht habe in dieses Leben. Ausgeliefert und voller Bereitschaft.
 
 Wir waren an einem Wasserfall am Sonntag. Das Wasser läuft an den Hängen runter, in die Felsspalten, bringt die steinigen Sammelbecken, zum Überlaufen und verzweigt sich zum Schluss in den Flussarmen. In einer der grünen eisigen Gumpen haben wir gebadet. Es presst einem die Luft aus der Lunge. Man muss japsen, kreischen, johlen, schnappatmen und alles tun, was spontan zur Verfügung steht. Es existiert in solchen Gumpen kein Gedanke. Sensorisch eine einzige Überforderung.   
-  
 Später dann der friedliche Weg nach Hause. 
 
 ![](/uploads/flusslauf-1.jpg)
