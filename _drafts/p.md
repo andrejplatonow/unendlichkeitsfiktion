@@ -8,8 +8,10 @@ Immer wenn ich denke, die Pfingstrose habe ihre maximale Öffnung erreicht hat, 
 ![](/uploads/pfingstrose-3.jpg)
 
 Gestern war der Mond ein Ei. Ich folge ihm und seinen Formen; den verbeulten,  halbfertigen,  zurück gehenden. In meinem Gedächtnisspeicher habe ich ein Mond-Depot angelegt.   
-Darin archiviert sind käsegelbe Vollmonde über Fichtenwäldern und bleich rosa Dreiviertelmonde über klirrend kalten Schneefeldern. Einige der Monde hängen über Hochhäusern, mehrere sinnliche Sicheln vor pflaumenblauen Abendhimmeln. Und es gibt auch, besonders gut verwahrt, einen an Bergzacken entlang schrammenden rötlichen Giganten.  
-Allerdings, der vielleicht wichtigste Archivmond befand sich vor einem Jahr in der französischen Provinz. Es hatte unter den Freunden den ganzen Tag über unterschiedliche Aussagen und Einschätzungen dazu gegeben, wann genau der Mond über diesem Dorf aufgehen würde. Eine Stunde harrten wir zu Neunt an der warmen Hauswand, um in der Sekunde seines Aufgangs da zu sein. Wir waren da. Und schrien vor Glück, als er hochging.
+Darin archiviert sind käsegelbe Vollmonde über Fichtenwäldern und bleich rosa Dreiviertelmonde über klirrend kalten Schneefeldern. Einige der Monde hängen über Hochhäusern, mehrere sinnliche Sicheln vor pflaumenblauen Abendhimmeln. Und es gibt auch, besonders gut verwahrt, einen an Bergzacken entlang schrammenden rötlichen Giganten.
+
+  
+Allerdings, der vielleicht wichtigste Archivmond befand sich vor einem Jahr in der französischen Provinz. Es hatte unter den Freunden den ganzen Tag über unterschiedliche Aussagen und Einschätzungen dazu gegeben, wann genau der Mond über diesem Dorf aufgehen würde. Eine Stunde harrten wir zu Neunt an der warmen Hauswand, um in der Sekunde des Aufgangs da zu sein. Wir waren da. Und schrien vor Glück, als er hochging.
 
 Ich habe ein bisschen Angst vor dem Tod. Es ist das gleiche Gefühl, das ich jedes mal vor einem Übergang spüre. Der Schritt in und durch das eigene Dunkel. Der Abschnitt, den jeder allein gehen muss. In dem es keine Ausflüchte mehr gibt. 
 
