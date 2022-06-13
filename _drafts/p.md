@@ -15,7 +15,7 @@ Allerdings, der vielleicht wichtigste Archivmond befand sich vor einem Jahr in d
 
 Ich habe ein bisschen Angst vor dem Tod. Es ist das gleiche Gefühl, das ich jedes mal vor einem Übergang spüre. Der Schritt in und durch das eigene Dunkel. Der Abschnitt, den jeder allein gehen muss. In dem es keine Ausflüchte mehr gibt. 
 
-Ich ahne/erkunde diese Unausweichlichkeit in dem gleichen Maß, wie ich meine Geburt noch irgendwo in mir ertasten kann. Der Anfang von mir. Wie ich mich hineingedreht habe in dieses Leben. Ausgeliefert und voller Bereitchaft.
+Ich ahne/erkunde diese Unausweichlichkeit in dem gleichen Maß, wie ich meine Geburt noch irgendwo in mir ertasten kann. Der Anfang von mir. Wie ich mich hineingedreht habe in dieses Leben. Ausgeliefert und voller Bereitschaft.
 
 Wir waren an einem Wasserfall am Sonntag. Das Wasser läuft an den Hängen runter, in die Felsspalten, bringt die steinigen Sammelbecken, zum Überlaufen und verzweigt sich zum Schluss in den Flussarmen. In einer der grünen eisigen Gumpen haben wir gebadet. Es presst einem die Luft aus der Lunge. Man muss japsen, kreischen, johlen, schnappatmen und alles tun, was spontan zur Verfügung steht. Es existiert in solchen Gumpen kein Gedanke. Sensorisch eine einzige Überforderung.   
   
