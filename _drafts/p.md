@@ -8,12 +8,11 @@ Immer wenn ich denke, die Pfingstrose habe ihre maximale Öffnung erreicht hat, 
 ![](/uploads/pfingstrose-3.jpg)
 
 Der Mond ist heute ein Ei. Ich folge ihm und seinen Formen; den verbeulten,  halbfertigen,  zurück gehenden. In meinem Gedächtnisspeicher habe ich ein Mond-Depot angelegt.   
-Darin archiviert sind käsegelbe Vollmonde über Fichtenwäldern und bleich rosa Dreiviertelmonde über klirrend kalten Schneefeldern. Einige der Monde hängen über Hochhäusern, mehrere sinnliche Sicheln vor pflaumenblauen Abendhimmeln. Und es gibt auch, besonders gut verwahrt, einen rötlichen Gigant, der die Bergzacke entlang schrammt.
-
-Der vielleicht wichtigste Archivmond befand sich vor einem Jahr in der französischen Provinz, wo zu Neunt eine Stunde an einer warmen Hauswand ausharrten, um in der Sekunde seines Aufgangs da zu sein. Wir waren da. Und schrien vor Glück, als er aufging.
+Darin archiviert sind käsegelbe Vollmonde über Fichtenwäldern und bleich rosa Dreiviertelmonde über klirrend kalten Schneefeldern. Einige der Monde hängen über Hochhäusern, mehrere sinnliche Sicheln vor pflaumenblauen Abendhimmeln. Und es gibt auch, besonders gut verwahrt, einen an Bergzacken entlang schrammenden rötlichen Giganten.  
+Allerdings, der vielleicht wichtigste Archivmond befand sich vor einem Jahr in der französischen Provinz. Es hatte unter den Freunden den ganzen Tag über unterschiedliche Aussagen und Einschätzungen dazu gegeben, wann genau der Mond über diesem Dorf aufgehen würde. Eine Stunde harrten wir zu Neunt an der warmen Hauswand, um in der Sekunde seines Aufgangs da zu sein. Wir waren da. Und schrien vor Glück, als er hochging.
 
 Ich habe ein bisschen Angst vor dem Tod. Es ist das gleiche Gefühl, das ich jedes mal vor einem Übergang spüre. Der Schritt in und durch das eigene Dunkel. Der Abschnitt, den jeder allein gehen muss. In dem es keine Ausflüchte mehr gibt. 
 
-Ich ahne/erkunde diese Unausweichlichkeit in dem gleichen Maß, wie ich meine Geburt noch irgendwo in mir ertasten kann. Der Anfang von mir. Wie ich mich hineingedreht habe in dieses Leben. 
+Ich ahne/erkunde diese Unausweichlichkeit in dem gleichen Maß, wie ich meine Geburt noch irgendwo in mir ertasten kann. Der Anfang von mir. Wie ich mich hineingedreht habe in dieses Leben. Ausgeliefert und voller Bereitchaft.
 
-Wir waren an einem Wasserfall am Sonntag. Wir sind geschwommen in der grünen eisigen Gumpe. Es presst einem die Luft aus der Lunge. Man muss japsen oder 
+Wir waren an einem Wasserfall am Sonntag. Das Wasser läuft an den Hängen runter, in die Felsspalten, bringt die steinigen Sammelbecken, zum Überlaufen und verzweigt sich zum Schluss in die Flussarme hinein. In einer der grünen eisigen Gumpen haben wir gebadet. Es presst einem die Luft aus der Lunge. Man muss japsen oder 
