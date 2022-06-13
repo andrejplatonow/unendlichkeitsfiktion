@@ -3,11 +3,11 @@ date: 2022-06-12 21:32:34 +0200
 title: P.
 
 ---
-Immer wenn ich denke, die Pfingstrose habe ihre maximale Öffnung erreicht hat, geht sie eine Stufe weiter. Ich weiß nicht, wie sie das aushält. Diese Ausdehnung, Auffaltung, das totale Exponiertsein. Vermutlich fühlt sie sich frei. Und sterblich.
+Immer wenn ich denke, die Pfingstrose habe ihre maximale Öffnung erreicht hat, geht sie eine Stufe weiter. Ich weiß nicht, wie sie das aushält. Diese Ausdehnung, Auffaltung, das totale Exponiertsein. 
 
 ![](/uploads/pfingstrose-3.jpg)
 
-Der Mond ist heute ein Ei. Ich folge ihm und seinen Formen; den verbeulten,  halbfertigen,  zurück gehenden. In meinem Gedächtnisspeicher habe ich ein Mond-Depot angelegt.   
+Gestern war der Mond ein Ei. Ich folge ihm und seinen Formen; den verbeulten,  halbfertigen,  zurück gehenden. In meinem Gedächtnisspeicher habe ich ein Mond-Depot angelegt.   
 Darin archiviert sind käsegelbe Vollmonde über Fichtenwäldern und bleich rosa Dreiviertelmonde über klirrend kalten Schneefeldern. Einige der Monde hängen über Hochhäusern, mehrere sinnliche Sicheln vor pflaumenblauen Abendhimmeln. Und es gibt auch, besonders gut verwahrt, einen an Bergzacken entlang schrammenden rötlichen Giganten.  
 Allerdings, der vielleicht wichtigste Archivmond befand sich vor einem Jahr in der französischen Provinz. Es hatte unter den Freunden den ganzen Tag über unterschiedliche Aussagen und Einschätzungen dazu gegeben, wann genau der Mond über diesem Dorf aufgehen würde. Eine Stunde harrten wir zu Neunt an der warmen Hauswand, um in der Sekunde seines Aufgangs da zu sein. Wir waren da. Und schrien vor Glück, als er hochging.
 
