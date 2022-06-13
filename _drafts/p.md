@@ -3,7 +3,7 @@ date: 2022-06-12 21:32:34 +0200
 title: P.
 
 ---
-Immer wenn ich denke, die Pfingstrose habe ihre maximale Öffnung erreicht hat, geht sie eine Stufe weiter. Ich weiß nicht, wie sie das aushält. Diese Ausdehnung, Auffaltung, das totale Exponiertsein. Vermutlich fühlt sie sich frei. Und unendlich sterblich.
+Immer wenn ich denke, die Pfingstrose habe ihre maximale Öffnung erreicht hat, geht sie eine Stufe weiter. Ich weiß nicht, wie sie das aushält. Diese Ausdehnung, Auffaltung, das totale Exponiertsein. Vermutlich fühlt sie sich frei. Und sterblich.
 
 ![](/uploads/pfingstrose-3.jpg)
 
