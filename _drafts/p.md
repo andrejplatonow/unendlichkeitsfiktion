@@ -8,7 +8,7 @@ Immer wenn ich denke, die Pfingstrose habe ihre maximale Öffnung erreicht hat, 
 ![](/uploads/pfingstrose-3.jpg)
 
 Der Mond ist heute ein Ei. Ich folge ihm und seinen Formen; den verbeulten,  halbfertigen,  zurück gehenden. In meinem Gedächtnisspeicher habe ich ein Mond-Depot angelegt.   
-Darin archiviert sind käsegelbe Vollmonde über Fichtenwäldern und bleich rosa Dreiviertelmonde über klirrend kalten Schneefeldern. Einige der Monde hängen über Hochhäusern, mehrere sinnliche Sicheln vor pflaumenblauen Abendhimmeln und ein rötlicher Gigant, der die Bergzacke entlang schrammt.
+Darin archiviert sind käsegelbe Vollmonde über Fichtenwäldern und bleich rosa Dreiviertelmonde über klirrend kalten Schneefeldern. Einige der Monde hängen über Hochhäusern, mehrere sinnliche Sicheln vor pflaumenblauen Abendhimmeln. Und es gibt auch, besonders gut verwahrt, einen rötlichen Gigant, der die Bergzacke entlang schrammt.
 
 Der vielleicht wichtigste Archivmond befand sich vor einem Jahr in der französischen Provinz, wo zu Neunt eine Stunde an einer warmen Hauswand ausharrten, um in der Sekunde seines Aufgangs da zu sein. Wir waren da. Und schrien vor Glück, als er aufging.
 
