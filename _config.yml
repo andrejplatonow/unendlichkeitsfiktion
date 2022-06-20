@@ -23,9 +23,6 @@ plugins:
 author:
   bio: Blogroll
   links:
-  - label: Ricarda Kiel
-    icon: ''
-    url: https://www.ricardakiel.de/hier-ist-etwas-ein-brief/
   - label: Au fil des mots
     icon: ''
     url: http://aufildesmots.biz/
@@ -50,12 +47,15 @@ author:
   - label: Mequito
     icon: ''
     url: http://mequito.org/
-  - label: Wieselblog
+  - label: Ricarda Kiel
     icon: ''
-    url: https://wieselblog.wordpress.com/
+    url: https://www.ricardakiel.de/hier-ist-etwas-ein-brief/
   - label: Wald und Höhle
     icon: ''
     url: https://waldundhoehle.wordpress.com/
+  - label: Wieselblog
+    icon: ''
+    url: https://wieselblog.wordpress.com/
 footer:
   links: []
 atom_feed:
