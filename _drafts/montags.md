@@ -14,11 +14,11 @@ Ich bin nicht hier, um Fotografieren zu lernen. Ein Teil des Gewächshauses wird
 
 ![](/uploads/rosen1.jpg)
 
-Um so froher bin ich, in den Pausen und an den Abenden zwischen Fenchelbeeten zu streunen, an allem zu riechen, unter rauschenden Linden zu liegen. Der Obergärtner läuft heiter und original mit Hut, Shorts und grüner Gießkannen durchs Bild und fordert uns auf, bitte viele Erdbeeren zu essen. Er ist kein Statist.
+Um so froher bin ich, in den Pausen und an den Abenden zwischen Fenchelbeeten zu streunen, an allem zu riechen, unter rauschenden Linden zu liegen. Der Chefgärtner läuft heiter und original mit Hut, Shorts und grüner Gießkannen durchs Bild und fordert uns auf, bitte viele Erdbeeren zu essen. Er ist kein Statist.
 
 ![](/uploads/eremitage.jpg)
 
-Ich denke hier oft an Tschechow, Sokolow, Platonow, Anna Achmatowa. In Tschechows Gesellschaften werden mit Vorliebe an heißen Sommertagen Theaterkulissen in den Garten des Landguts gezimmert, ein Pappmond in den Baum gehängt, den Zusammenkommenden ein Text ausgehändigt. Und da stehen sie dann.  
+Ich denke hier oft an Tschechow, Sokolow, Anna Achmatowa. In Tschechows Gesellschaften werden mit Vorliebe an heißen Sommertagen Theaterkulissen in den Garten des Landguts gezimmert, ein Pappmond in den Baum gehängt, den Zusammenkommenden ein Text ausgehändigt. Und da stehen sie dann.  
   
 Irina: "Als ich heute erwachte, aufstand und mich wusch, schien es mir plötzlich, als sei mir alles klar auf der Welt, und ich wusste, wie man zu leben hat.   
   
