@@ -26,7 +26,7 @@ Platonow: "Aber trotzdem begann der Kummer der allgemeinen Lage Woschtschew wied
 
 Achmatowa: "Wir werden nicht aus einem Glase trinken, kein Wasser und auch keinen süßen Wein, des Morgens nicht in einem Kuss versinken, noch aus dem Fenster sehen im Abendschein."
 
-Sokolow: "Da kommt ein Soldat mit einer Feldmütze, nimmt ein Stück Kreide und geht auf einen Waggon zu, er schreibt: Noch zwei Monate beim Barras. Da kommt ein Bergmann, seine weiße Hand schreibt lakonisch: Säue. Ein Sitzenbleiber der fünften Klasse schreibt: Marija Stepanna - Hure. Eine Bahnhofsarbeiterin in einer organgefarbenen Weste zeichnet auf den Waggon eine Wellenlinie. Ein Bettler mit Ziehharmonika nur zwei Worte: vielen Dank.  
+Sokolow: "Da kommt ein Soldat mit einer Feldmütze, nimmt ein Stück Kreide und geht auf den Waggon zu, er schreibt: Noch zwei Monate beim Barras. Da kommt ein Bergmann, seine weiße Hand schreibt lakonisch: Säue. Ein Sitzenbleiber der fünften Klasse schreibt: Marija Stepanna - Hure. Eine Bahnhofsarbeiterin in einer organgefarbenen Weste zeichnet auf den Waggon eine Wellenlinie. Ein Bettler mit Ziehharmonika nur zwei Worte: vielen Dank.  
 Schließlich verlässt der Zug das Abstellgleis und rattert durch die Weiten Russlands.
 
 ![](/uploads/flosser.jpg)
