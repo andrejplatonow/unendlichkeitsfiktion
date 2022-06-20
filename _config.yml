@@ -23,34 +23,37 @@ plugins:
 author:
   bio: Blogroll
   links:
-  - label: 'Au fil des mots'
+  - label: Ricarda Kiel
+    icon: ''
+    url: https://www.ricardakiel.de/hier-ist-etwas-ein-brief/
+  - label: Au fil des mots
     icon: ''
     url: http://aufildesmots.biz/
-  - label: 'Buddenbohm'
+  - label: Buddenbohm
     icon: ''
     url: https://www.buddenbohm-und-soehne.de/
-  - label: 'Goncourt'
+  - label: Goncourt
     icon: ''
     url: http://goncourt.net/Blog/
-  - label: 'Hotel'
+  - label: Hotel
     icon: ''
     url: http://hotelmama.it/
-  - label: 'Kraulquappe'
+  - label: Kraulquappe
     icon: ''
     url: https://kraulquappe.com/
-  - label: 'Kreuzberg'
+  - label: Kreuzberg
     icon: ''
     url: https://kreuzbergsuedost.wordpress.com/
   - label: Landleben
     icon: ''
     url: https://landlebenblog.org/blog/
-  - label: 'Mequito'
+  - label: Mequito
     icon: ''
     url: http://mequito.org/
-  - label: 'Wieselblog'
+  - label: Wieselblog
     icon: ''
     url: https://wieselblog.wordpress.com/
-  - label: 'Wald und Höhle'
+  - label: Wald und Höhle
     icon: ''
     url: https://waldundhoehle.wordpress.com/
 footer:
