@@ -14,7 +14,7 @@ Ich bin nicht hier, um Fotografieren zu lernen. Ein Teil des Gewächshauses wird
 
 ![](/uploads/rosen1.jpg)
 
-Um so dankbarer bin ich, in den Pausen und an den Abenden zwischen Fenchelbeeten zu streunen, an allem zu riechen, unter rauschenden Linden zu liegen. Der Obergärtner läuft original mit Hut, Shorts und grüner Gießkannen durchs Bild und fordert uns auf, so viel wie möglich von den Erdbeeren zu naschen.
+Um so froher bin ich, in den Pausen und an den Abenden zwischen Fenchelbeeten zu streunen, an allem zu riechen, unter rauschenden Linden zu liegen. Der Obergärtner läuft heiter und original mit Hut, Shorts und grüner Gießkannen durchs Bild und fordert uns auf, bitte viele Erdbeeren zu essen. Er ist kein Statist.
 
 ![](/uploads/eremitage.jpg)
 
