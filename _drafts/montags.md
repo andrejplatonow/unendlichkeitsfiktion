@@ -10,7 +10,11 @@ Die Schafe sind wieder ausgebüxt. Jetzt stehen sie vor unserer Tür. Man darf i
 Am Wochenende Fortbildung. Die Fortbildungen finden in einer Gärtnerei statt, die 80% der europäischen Print und Online Gartenzeitschriften mit Bildern versorgt. Daher stehen überall auf dem Gelände Kulissen. Hausfassaden ohne Haus dahinter, Zaunelemente, die nichts einzäunen, gut aussehende Hühner vor einem Tiny House, in dem niemand wohnt.  
 In, auf und über den Kulissen bersten Rosensträucher, wachsen Pfirsichbäumchen im Kübel, leuchten Walderdbeeren vor ins Gras gelegten Weidenkörben.
 
-Ich bin nicht hier, um Fotografieren zu lernen. Ein Teil des Gewächshauses wird für Tagungen und Seminare vermietet. Die Inhalte der Fortbildung weichen drastisch ab von dem hier geschaffenen hortus concluses. Die Theorie ist dicht, die Praxisübungen noch dichter, es wird präzise beobachtet, umgesetzt und von Ausbildern geprüft. Um so dankbarer bin ich, in den Pausen und an den Abenden zwischen Fenchelbeeten zu streunen, an allem zu riechen, unter rauschenden Linden zu liegen. Der Obergärtner läuft original mit Hut, Shorts und grüner Gießkannen durchs Bild und fordert uns auf, so viel wie möglich von den Erdbeeren zu naschen.
+Ich bin nicht hier, um Fotografieren zu lernen. Ein Teil des Gewächshauses wird für Tagungen und Seminare vermietet. Die Inhalte der Fortbildung weichen drastisch ab von dem hier geschaffenen hortus concluses. Die Theorie ist dicht, die Praxisübungen noch dichter, es wird präzise beobachtet, umgesetzt und von Ausbildern geprüft. 
+
+![](/uploads/rosen1.jpg)
+
+Um so dankbarer bin ich, in den Pausen und an den Abenden zwischen Fenchelbeeten zu streunen, an allem zu riechen, unter rauschenden Linden zu liegen. Der Obergärtner läuft original mit Hut, Shorts und grüner Gießkannen durchs Bild und fordert uns auf, so viel wie möglich von den Erdbeeren zu naschen.
 
 ![](/uploads/eremitage.jpg)
 
