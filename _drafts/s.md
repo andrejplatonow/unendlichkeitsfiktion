@@ -1,6 +1,6 @@
 ---
 date: 2022-06-25 20:34:12 +0200
-title: S.
+title: Juni
 
 ---
 Es passiert nichts in diesen Tagen. Das Heu wird eingeholt und ich muss nicht daran beteiligt sein. Nur vorübergehen.
