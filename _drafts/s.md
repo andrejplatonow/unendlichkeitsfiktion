@@ -8,3 +8,5 @@ Es passiert nichts in diesen Tagen. Das Heu wird eingeholt und ich muss nicht da
 Was ich gelernt habe sackt tiefer in mich hinein. Ich registriere passiv, dass es von selbst geschieht.
 
 Die Mittagsstunden sind heiß. Ich wechsel von der Sonne in den Schatten und zurück. Es ist warm bis in die Nacht.
+
+![](/uploads/heu1.jpg)
