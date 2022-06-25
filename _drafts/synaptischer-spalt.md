@@ -1,8 +1,9 @@
 ---
-date: 2022-05-11 16:05:12 +0200
+date: 2022-05-11T16:05:12.000+02:00
 title: Synaptischer Spalt
 
 ---
-Verminderte Reizübertragung = Depression
+Verminderte Reizübertragung = Depression  
+Verstärkte Reizübertragung = Manie, Schizophrenie
 
-Verstärkte Reizübertragung = Manie, Schizophrenie, 
+![](/uploads/synaptischer-spalt.jpg)
