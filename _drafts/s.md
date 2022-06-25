@@ -5,4 +5,6 @@ title: S.
 ---
 Es passiert nichts in diesen Tagen. Das Heu wird eingeholt und ich muss nicht daran beteiligt sein. Nur vorübergehen.
 
-Was ich gelernt habe sackt tiefer in mich hinein. Ich registrieren passiv, dass es von selbst geschieht. 
+Was ich gelernt habe sackt tiefer in mich hinein. Ich registriere passiv, dass es von selbst geschieht.
+
+Die Mittagsstunden sind heiß. Ich wechsel von der Sonne in den Schatten und zurück. 
