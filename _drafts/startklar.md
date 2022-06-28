@@ -6,8 +6,6 @@ title: Startklar
 ![](/uploads/grune-kacheln.jpg)
 
 Ich habe heute Morgen in der S-Bahn einer Frau 25 Minuten lang dabei zugeschaut, wie sie sich schminkt. Wenn man aus der Pubertät raus ist, hat man gar nicht mehr oft Gelegenheit, jemandem in echt dabei zuzusehen. Nicht auf Youtube oder als Teil einer Performance.  
-Die Frau stieg am gleichen Bahnhof wie ich zu, warf sich in einen Sitz und begann mit der Einrichtung ihres Gesichts: Grundierung, Abdeckung, Kontur, Puder, Rouge, Lidschatten, Lidstrich, Wimperntusche, Lippenstift und zum Schluss etwas, das ich als Augenbrauenliner bezeichnen würde. Sie war mittleren Alters und trug weiße Jeans. Ich habe mich gut unterhalten gefühlt und konnte nachvollziehen, dass sie nach dem ganzen Aufwand konsequenterweise keine Maske aufsetzt. Verschmiert ja alles. Schade war nur, dass sie mit dem Make-up nicht mehr so nahbar wirkte. Sie sah vorher sehr charmant aus, mit ihrem leicht verpennten Blick. 
+Die Frau stieg am gleichen Bahnhof wie ich zu, warf sich in einen Sitz und begann mit der Einrichtung ihres Gesichts: Grundierung, Abdeckung, Kontur, Puder, Rouge, Lidschatten, Lidstrich, Wimperntusche, Lippenstift und zum Schluss etwas, das ich als Augenbrauenliner bezeichnen würde. Sie war mittleren Alters und trug weiße Jeans. Ich habe mich gut unterhalten gefühlt und konnte nachvollziehen, dass sie nach dem ganzen Aufwand konsequenterweise keine Maske aufsetzt. Verschmiert ja alles. Schade war, dass sie mit dem Make-up nicht mehr so nahbar wirkte. Sie sah vorher sehr charmant aus, mit ihrem leicht verpennten Blick.
 
-Wie mir auch eigentlich immer bei den Vorher - Nachher - Fotos die Leute vorher besser gefallen. Den Rest des Tages gehadert, ob ich jetzt 
-
- 
+Wie mir auch eigentlich immer bei den Vorher - Nachher - Fotos die Leute vorher besser gefallen. Den Rest des Tages gehadert, ob ich aus der Beobachtung am Morgen schlussfolgern soll, selber kein Make-up mehr zu nutzen. Gemerkt: nein. Geht noch nicht. 
