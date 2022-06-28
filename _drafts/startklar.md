@@ -1,6 +1,6 @@
 ---
 date: 2022-06-27T22:42:55.000+02:00
-title: Startklar
+title: startklar
 
 ---
 ![](/uploads/grune-kacheln.jpg)
