@@ -10,4 +10,4 @@ Die Frau stieg am gleichen Bahnhof wie ich zu, warf sich in einen Sitz und began
 
 Wie mir eigentlich immer bei den Vorher/Nachher - Fotos die Leute vorher besser gefallen. Den Rest des Tages gehadert, ob ich aus der Beobachtung am Morgen schlussfolgern soll, selbst kein Make-up mehr zu nutzen. Gemerkt: nein. Geht noch nicht. Fühle mich doch recht gezeichnet von den vergangenen und bestehenden Krankheiten und will dem nicht konstant in die Augen schauen. Eine dünne Schicht Puder scheint genau den benötigten Schutz zwischen mich und die Umwelt zu schieben, damit ich mir nicht völlig roh vorkomme.  Lieber wäre es mir anders. Lieber wäre ich in diesem Areal okay. Abwarten. Weitermachen.
 
-She said, you know, the skin - our contact organ. It's not easy to show skin if boundaries were not respected in the past.
+She said, you know, the skin - our contact organ. It's not easy to feel good in skin if boundaries haven't been respected in the past.
