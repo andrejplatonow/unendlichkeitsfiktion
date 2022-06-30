@@ -11,3 +11,7 @@ Die Frau stieg am gleichen Bahnhof wie ich zu, warf sich in einen Sitz und began
 Wie mir eigentlich immer bei den Vorher/Nachher - Fotos die Leute vorher besser gefallen. Den Rest des Tages gehadert, ob ich aus der Beobachtung am Morgen schlussfolgern soll, selbst kein Make-up mehr zu nutzen. Gemerkt: nein. Geht noch nicht. Fühle mich doch recht gezeichnet von den vergangenen und bestehenden Krankheiten und will dem nicht konstant in die Augen schauen. Eine dünne Schicht Puder scheint genau den benötigten Schutz zwischen mich und die Umwelt zu schieben, damit ich mir nicht völlig roh vorkomme. Lieber wäre es mir anders. Lieber wäre ich in diesem Areal okay. Abwarten. Weitermachen.
 
 She said, the skin - our contact organ. It's not easy to feel good in our skin if this boundary wasn't respected once.
+
+Dann flaut in der Arbeit plötzlich alles ab. Nach der Raserei der letzten Wochen habe ich zum ersten Mal Zeit, mit einem Kollegen länger Pause zu machen, mit der Security zu plaudern, Eiskaffee zu trinken.   
+  
+Die spießige Blume habe ich auf Dauer doch nicht toleriert und war shon dabei, ihre Kompostierung vorzunehmen. Der Nachbar, der gleichzeitig ein Freund ist, hat sie angeschaut und bestätigt: Ja, sie ist hässlich. Aber sie könne ein Loch im Sichtschutz auf seiner Seite füllen. Er hat die Blume ausgegraben und versetzt. Es wird ja alles mögliche über Freunde behauptet. Man soll nicht mit Freunden zusammenziehen, man soll nicht mit Freunden eine Firma gründen, man soll Freunden kein Geld leihen. 
