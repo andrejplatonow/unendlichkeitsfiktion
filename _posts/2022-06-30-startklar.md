@@ -1,6 +1,6 @@
 ---
 date: 2022-06-30T22:42:55.000+02:00
-title: Skin - contact organ
+title: Kontaktorgan
 
 ---
 ![](/uploads/grune-kacheln.jpg)
