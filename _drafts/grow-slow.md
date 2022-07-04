@@ -23,7 +23,7 @@ In dieser Stadt wurde häufig roter Sandstein verbaut. Wären nicht 98% weggebom
 
 ![](/uploads/grow.jpg)
 
-Es ist mir, zumindest im Juli, viel klarer, dass jedes nachhaltige Wachstum langsam geschieht. Und ich nur punktuell beteiligt bin. 
+Es ist mir, zumindest im Juli, hier, unter Freunden und auf den aufgeheizten Steinen, viel klarer, dass jedes nachhaltige Wachstum langsam geschieht. Und ich nur punktuell beteiligt bin. 
 
 ![](/uploads/steinschnecke-2.jpg)
 
