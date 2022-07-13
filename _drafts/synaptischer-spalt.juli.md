@@ -3,7 +3,7 @@ date: 2022-07-12T21:25:24.000+02:00
 title: Juli
 
 ---
-![](/uploads/signal-2020-02-03-164836.jpg)Die Tendenz der letzten Jahre, sich mit Bienen und Imkerei zu befassen, Maja Lunde zu lesen und Insektenhotels zurecht zu sägen ist an mir vorbeigegangen. Daher erkenne ich erst jetzt im Angesicht des Lavendels, dass es einige Dutzend (?) verschiedene Bienenarten in dieser Gegend geben muss. Es landen pelzige und wenig behaarte, schlanke und beleibte Tiere, manche fliegen taumelnd, andere orientiert, es gibt gute Kletterer neben Verwandten, dieständig von lila Skabiosablüten herunter stürzen.
+![](/uploads/signal-2020-02-03-164836.jpg) Die Tendenz der letzten Jahre, sich mit Bienen und Imkerei zu befassen, Maja Lunde zu lesen und Insektenhotels zurecht zu sägen ist an mir vorbeigegangen. Daher erkenne ich erst jetzt im Angesicht des Lavendels, dass es einige Dutzend (?) verschiedene Bienenarten in dieser Gegend geben muss. Es landen pelzige und wenig behaarte, schlanke und beleibte Tiere, manche fliegen taumelnd, andere orientiert, es gibt gute Kletterer neben Verwandten, dieständig von lila Skabiosablüten herunter stürzen.
 
 ![](/uploads/pxl_20220616_181729491.jpg)
 
