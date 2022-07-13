@@ -7,7 +7,7 @@ title: Juli
 
 ![](/uploads/pxl_20220616_181729491.jpg)
 
-Nachts sind die Fenster weit geöffnet. Es riecht nach Heu. Der Mond geht auf, ich will wach bleiben und ihn lange anschauen, aber die Müdigkeit ist stärker und der nächste Tag wird um 6 beginnen, damit ein Stapel ukrainischer  Kindergeldanträge nicht noch länger liegen bleibt. Das Arbeitspensum ist in diesen Tagen sonderbar unstet. Entweder es flutet unkontrolliert herein oder zerrinnt zu einem buchstäblichen Nichts. Ich kenne in meiner temporären Aushilfstätigkeit die Prozesse nicht gut genug um zu , an welcher Stelle es hängt, wo es sich aufhält oder aufgehalten wird, das Pensum.
+Nachts sind die Fenster weit geöffnet. Es riecht nach Heu. Der Mond geht auf, ich will wach bleiben und ihn lange anschauen, aber die Müdigkeit ist stärker und der nächste Tag wird um 6 beginnen, damit ein Stapel ukrainischer  Kindergeldanträge nicht noch länger liegen bleibt. Das Arbeitspensum ist in diesen Tagen sonderbar unstet. Entweder es flutet unkontrolliert herein oder zerrinnt zu einem buchstäblichen Nichts. Ich kenne in meiner temporären Aushilfstätigkeit die Prozesse nicht gut genug um zu wissen, an welcher Stelle es hängt, wo es sich aufhält oder aufgehalten wird, das Pensum.
 
 ![](/uploads/img_20171003_134447.jpg)
 
