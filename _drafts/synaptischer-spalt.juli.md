@@ -11,6 +11,4 @@ Einem Freund geht es besser, ich freue mich. Ein anderer Freund ist sehr krank, 
 
 In der Pause finden ein Kollege und ich den Zugang zur Dachterrasse. Wir essen mitgebrachten Toast mit Essiggurken und Keksen, weil das Kantinenessen so schlecht ist. Er erzählt von etwas, das ihn seit Langem verfolgt. Ich erzähle von den letzten Tagen meiner Mutter. Wir haben nicht bewusst darauf zugesteuert. Das Dach scheint isoliert und entrückt genug, um altes Segment in einem sicheren Rahmen hochschwemmen zu lassen. Dann wechseln wir zu Science Fiction. Ein guter Abschluss.
 
-The part of you that loves you more than anything else, will go to extreme measures to wake you up. It will make you suffer greatly if you don't listen. What else can it do?  \[A.H. Almas\]
-
-We human suffer into truth. \[Aischylos, Agamemnon, Chor\]
+Ich habe jetzt doch Obi Wan angeschaut. Es kann nicht immer Premium sein. Man muss sich auch mal mit Zweitklassigen zufrieden geben.
