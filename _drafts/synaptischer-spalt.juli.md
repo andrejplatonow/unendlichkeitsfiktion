@@ -11,10 +11,10 @@ Nachts sind die Fenster weit geöffnet. Es riecht nach Heu. Der Mond geht auf, i
 
 ![](/uploads/img_20171003_134447.jpg)
 
-Einem Freund geht es besser, ich freue mich. Ein anderer Freund ist sehr krank, ich habe Angst, ihn zu verlieren. In letzter Zeit ist häufig, unerwartet etwas für immer vorbei gewesen. Das bringt eine gewisse Dringlichkeit in alle meine Begegnungen und Gespräche. Ich weiß nicht, ob es meinem jeweiligen Gegenüber auffällt, ob das gut ist. Ob es nervt. Ich dachte, ich hätte einen Umgang mit der prinzipiellen Vergänglichkeit aller Erscheinungen gefunden. Aber das war wohl nur first level.
+Einem Freund war ziemlich mitgenommen, jetzt geht es ihm besser, ich freue mich. Ein anderer Freund ist sehr krank, ich habe Angst, ihn zu verlieren. In letzter Zeit ist häufig, unerwartet etwas für immer vorbei gewesen. Das bringt eine gewisse Dringlichkeit in alle meine Begegnungen und Gespräche. Ich weiß nicht, ob es meinem jeweiligen Gegenüber auffällt, ob das gut ist. Ob es nervt. Ich dachte, ich hätte einen Umgang mit der prinzipiellen Vergänglichkeit aller Erscheinungen gefunden. Aber das war wohl nur first level.
 
-In der Pause finden ein Kollege und ich Zugang zu Dachterrasse. Wir essen mitgebrachten Toast mit Essiggurken und Keksen, weil das Kantinenessen so schlecht ist. Er erzählt von etwas, das ihn seit Langem verfolgt. Ich erzähle von den letzten Tagen meiner Mutter. Wir haben nicht bewusst darauf zugesteuert. Das Dach scheint isoliert und entrückt genug, um altes Segment in einem sicheren Rahmen hochschwemmen zu lassen. Dann wechseln wir zu Science Fiction. Ein guter Abschluss.
+In der Pause finden ein Kollege und ich Zugang zu Dachterrasse. Wir essen mitgebrachten Toast mit Essiggurken und Keksen, weil das Kantinenessen so schlecht ist. Er erzählt von etwas, das ihn seit Langem verfolgt. Ich erzähle von den letzten Tagen meiner Mutter. Wir haben nicht bewusst darauf zugesteuert. Das Dach scheint isoliert und entrückt genug, um altes Segment in einem sicheren Rahmen hochschwemmen zu lassen. Dann wechseln wir zu Science Fiction.
 
-Ich habe jetzt doch Obi Wan angeschaut. Es kann nicht immer Premium sein. Man muss sich auch mal mit Zweitklassigen zufrieden geben.
+Ich habe jetzt doch Obi Wan angeschaut. Es kann nicht immer Premium sein. Man muss sich auch mal mit Zweitklassigem zufrieden geben.
 
 ![](/uploads/signal-2020-02-03-164836.jpg)
