@@ -3,12 +3,10 @@ date: 2022-07-12 21:25:24 +0200
 title: Juli
 
 ---
-Etwas in mir wird umgebaut. Die Renovierung findet emotional und in kleineren Einheiten kognitiv statt. Ich bemerke es, als ich versuche Musik zu hören und sie wieder abstellen muss. Als ich ein Buch lese und die Information nicht aufnehmen kann. Jeder zusätzliche Content scheint die anderweitig benötigte Prozesskapazität zu irritieren, abzulenken. Ein paar Tage fühle ich mich seltsam, weil ich meine Lieblingsserien nicht zu Ende schaue. Als ich es endlich einigermaßen akzeptiere, rutscht mein Atem tiefer in den Bauch, das fühlt sich gut an. Ich frage mich, warum ich mich bis jetzt gewehrt habe.
+Nachts sind die Fenster weit offen. Es riecht nach Heu.
 
-Der Himmel ist abends türkis. Nachts sind die Fenster offen. Es riecht nach Heu.
-
-Einem Freund geht es besser, ich freue mich. Ein anderer Freund ist sehr krank, ich habe Angst, ihn zu verlieren. In letzter Zeit ist häufig und unerwartet, etwas für immer vorbei gewesen. Das bringt eine gewisse Dringlichkeit in alle meine Begegnungen und Gespräche. Ich weiß nicht, ob es meinem jeweiligen Gegenüber auffällt, ob das gut ist. Ob es nervt.    
-Ich dachte, ich hätte einen Umgang mit der prinzipiellen Vergänglichkeit aller Erscheinungen gefunden. Aber das war wohl nur das erste Level. 
+Einem Freund geht es besser, ich freue mich. Ein anderer Freund ist sehr krank, ich habe Angst, ihn zu verlieren. In letzter Zeit ist häufig und unerwartet, etwas für immer vorbei gewesen. Das bringt eine gewisse Dringlichkeit in alle meine Begegnungen und Gespräche. Ich weiß nicht, ob es meinem jeweiligen Gegenüber auffällt, ob das gut ist. Ob es nervt.  
+Ich dachte, ich hätte einen Umgang mit der prinzipiellen Vergänglichkeit aller Erscheinungen gefunden. Aber das war wohl nur das erste Level.
 
 The part of you that loves you more than anything else, will go to extreme measures to wake you up. It will make you suffer greatly if you don't listen. What else can it do?  \[A.H. Almas\]
 
