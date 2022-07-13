@@ -1,11 +1,13 @@
 ---
-date: 2022-07-12 21:25:24 +0200
+date: 2022-07-12T21:25:24.000+02:00
 title: Juli
 
 ---
 Die Tendenz der letzten Jahre, sich mit Bienen und Imkerei zu befassen, Maja Lunde zu lesen und Insektenhotels zurecht zu sägen ist an mir vorbeigegangen. Daher erkenne ich erst jetzt im Angesicht des Lavendels, dass es einige Dutzend (?) verschiedene Bienenarten in dieser Gegend geben muss. Es landen pelzige und wenig behaarte, schlanke und beleibte Tiere, manche fliegen taumelnd, andere orientiert, es gibt gute Kletterer neben Kollegen, die ständig von lila Blüten herunter stürzen.
 
-Nachts sind die Fenster weit geöffnet. Es riecht nach Heu. Der Mond geht auf, ich will wach bleiben und ihn lange anschauen, aber die Müdigkeit ist stärker und der nächste Tag wird um 6 beginnen, damit ein Stapel ukrainischer  Kindergeldanträge nicht noch länger liegen bleibt. Das Arbeitspensum ist in diesen Tagen sonderbar unstetig. Entweder es flutet unkontrolliert herein oder es zerrinnt zu einem buchstäblichen Nichts. Ich weiß nicht, an welcher Stelle es hängt, wo es sich aufhält oder aufgehalten wird, das Pensum. 
+![](/uploads/pxl_20220616_181729491.jpg)
+
+Nachts sind die Fenster weit geöffnet. Es riecht nach Heu. Der Mond geht auf, ich will wach bleiben und ihn lange anschauen, aber die Müdigkeit ist stärker und der nächste Tag wird um 6 beginnen, damit ein Stapel ukrainischer  Kindergeldanträge nicht noch länger liegen bleibt. Das Arbeitspensum ist in diesen Tagen sonderbar unstetig. Entweder es flutet unkontrolliert herein oder es zerrinnt zu einem buchstäblichen Nichts. Ich weiß nicht, an welcher Stelle es hängt, wo es sich aufhält oder aufgehalten wird, das Pensum.
 
 Einem Freund geht es besser, ich freue mich. Ein anderer Freund ist sehr krank, ich habe Angst, ihn zu verlieren. In letzter Zeit ist häufig und unerwartet, etwas für immer vorbei gewesen. Das bringt eine gewisse Dringlichkeit in alle meine Begegnungen und Gespräche. Ich weiß nicht, ob es meinem jeweiligen Gegenüber auffällt, ob das gut ist. Ob es nervt. Ich dachte, ich hätte einen Umgang mit der prinzipiellen Vergänglichkeit aller Erscheinungen gefunden. Aber das war wohl nur first level
 
