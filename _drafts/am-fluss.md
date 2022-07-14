@@ -9,4 +9,6 @@ Wir gehen zu einem See, der nicht mehr lange ein See sein wird, denn sein Boden 
 
 Auf einem Steg am Ufer liege ich und höre ihnen zu. Was alte Frauen manchmal sehr gern machen ist: schwimmen und gleichzeitig reden. Sie schwimmen bis zur Mitte des Sees und reden dabei über Hans, der einen Schlaganfall hatte und jetzt halb tot ist. Über eine kürzlich stattgefundene Beerdigung, deren Blumenschmuck nicht anständig  ausgerichtet war. Über jemanden, die sie beide kennen und blöd finden. Über einen anderen Hans, der im Nachbardorf eine Affäre hatte, aus der ein Kind hervorgegangen ist und das Kind ist jetzt eine erwachsene Frau und die macht irgendwas.
 
-nicht so buchstabig, eher  bildlich.
+![](/uploads/wasserlilie.jpg)
+
+Dann wird es am See zu heiß und wir fahren zum Fluss. Am Fluss weht Wind und das Wasser ist kälter und genau richtig, eine kleine schwarze Schlange schwimmt vorbei, die Luft riecht sandig und süß.
