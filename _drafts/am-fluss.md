@@ -9,7 +9,8 @@ Wir gehen zu einem See, der nicht mehr lange ein See sein wird, denn sein Boden 
 
 ![](/uploads/wasserlilie.jpg)
 
-Wir liegen an einem Steg und hören zu. Was die erwähnte Generation ja sehr gern macht ist schwimmen und gleichzeitig reden.  So auch hier die badenden Damen. Sie redem vom Hans, der einen Schlaganfall hatte und jetzt halb tot ist. Von der letzten Beerdigung, die irgendjemand nicht angemessen ausgerichtet hat, was eine Schande ist. Von dem anderen Hans, der eine Affäre im Nachbardorf hatte, aus der ein Kind hervorgegangen ist und das Kind ist jetzt eine erwachsene Frau und macht irgendwas.  Dann sind sie genug geschwommen und steigen aus dem Wasser. Tropfnass wackeln sie zu ihren Häusern zurück. Ohne Handtuch. So heißt ist es heute.
+Wir liegen an einem Steg und hören zu. Was die erwähnte Generation ja sehr gern macht ist schwimmen und gleichzeitig reden.  So auch hier die badenden Damen. Sie redem vom Hans, der einen Schlaganfall hatte und jetzt halb tot ist. Von der letzten Beerdigung, die irgendjemand nicht angemessen ausgerichtet hat, was eine Schande ist. Von dem anderen Hans, der eine Affäre im Nachbardorf hatte, aus der ein Kind hervorgegangen ist und das Kind ist jetzt eine erwachsene Frau und macht irgendwas.   
+Dann sind sie beiden genug geschwommen und steigen aus dem Wasser. Tropfnass wackeln sie zu ihren Häusern zurück. Ohne Handtuch. So heiß ist es heute.
 
 ![](/uploads/isar-2.jpg)
 
