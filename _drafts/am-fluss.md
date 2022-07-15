@@ -16,3 +16,5 @@ Wir liegen an einem Steg und hörenIch liege zu. Was die erwähnte Generation ja
 Am See ist es jetzt still, wir liegen auf den morschen Stegbrettern, das Schilf rauscht im sachten Wind. Nach einer Weile packen wir zusammen und fahren zum Fluss. Am Fluss weht mehr Wind, das Wasser ist kälter und genau richtig, eine kleine schwarze Schlange schwimmt vorbei, die Kiefern am sandigen Ufer riechen nach Kiefer. Sonst fällt nichts vor. Die Schlange und eine kurze Aufregung darum ist alles, was der Tag an Adrenalin zu bieten hat.
 
 ![](/uploads/wasser-fusse.jpg)
+
+Am nächsten Tag komme ich im Kapitel 'Organische psychische Störungen/Demenzen/Alzheimer' an. Die Reisberg-Skala, der graduelle Abbau kognitiver Fähigkeiten, die Wesensveränderungen, und warum frühe Symptome einer Demenz häufig mit Depression und Affektstörungen verwechselt werden. Mir wird klarer, warum die Ärzte zu einer Freundin sagten, sie wissen noch nicht, ob ihre Mutter Demenz oder Depressionen oder einen Schlaganfall oder einen Hirntumor hat. Im Moment sei alles möglich. 
