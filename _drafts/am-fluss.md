@@ -18,4 +18,4 @@ Am See ist es jetzt still, wir liegen auf den morschen Stegbrettern, das Schilf 
 
 ![](/uploads/wasser-fusse.jpg)
 
-Am nächsten Tag komme ich im Kapitel 'Organische psychische Störungen/Demenzen/Alzheimer' an. Die Reisberg-Skala, der graduelle Abbau kognitiver Fähigkeiten, die Wesensveränderungen, und warum frühe Symptome einer Demenz häufig mit Depression und Affektstörungen verwechselt werden. Mir wird klarer, warum die Ärzte zu einer Freundin sagten, sie wissen noch nicht, ob die Mutter der Freundin Demenz oder Depressionen oder einen Schlaganfall oder einen Hirntumor hat. Im Moment sei alles möglich.
+Am nächsten Tag komme ich im Kapitel 'Organische psychische Störungen/Demenzen/Alzheimer' an. Die Reisberg-Skala, der graduelle Abbau kognitiver Fähigkeiten, die Wesensveränderungen, und warum frühe Symptome einer Demenz häufig mit Depression und Affektstörungen verwechselt werden. Mir wird klarer, warum neulich die Ärzte zu einer Freundin sagten, sie wissen noch nicht, ob die Mutter der Freundin Demenz oder Depressionen oder einen Schlaganfall oder einen Hirntumor hat. Im Moment sei alles möglich.
