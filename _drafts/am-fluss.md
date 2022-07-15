@@ -5,9 +5,11 @@ title: 'Es ist der Tag des Schilfs, der Schlange und der Wasserlilie. '
 ---
 ![](/uploads/schilf-1.jpg)
 
-Wir gehen zu einem See, der nicht mehr lange ein See sein wird, denn sein Boden wächst der Wasseroberfläche entgegen. Tief und klar genug zum Baden ist der See aber noch, das scheinen die alten Frauen des angrenzenden Dorfes genau zu wissen, sonst würden sie davon absehen mit hundertjährigem Katholizismus und Gicht in den Gelenken und nichts als ihrem Badeanzug ab Leib die Dorfstraße entlang zum Wasser wackeln. Mir gefällt die Wurschtigkeit, die sie dem Herzeigen ihres Körpers gegenüber aufbringen. Vielleicht hilft es, abgeschieden zu leben und bereits viele Jahrezehnte in diesem Körper zu sein, also eine Vertrautheit und damit Neutralität erlangt zu haben. Am See angekommen steigen die Frauen das Steintreppchen hinunter, stoßen sich ab und gleiten ins Schilf
+Wir gehen zu einem See, der nicht mehr lange ein See sein wird, denn sein Boden wächst der Wasseroberfläche entgegen. Tief und klar genug zum Baden ist der See aber noch, das scheinen die alten Frauen des angrenzenden Dorfes genau zu wissen. Mit hundertjährigem Katholizismus und Gicht in den Gelenken und nichts als ihrem Badeanzug ab Leib wackeln sie die Dorfstraße entlang zum Wasser. 
 
 ![](/uploads/wasserlilie.jpg)
+
+Ich liege an einem Steg und baumel mit Arm ins W Was die erwähnte Generation ja sehr gern macht ist schwimmen undgleichzeitig ganz viel reden.  So auch hier die badenden Damen. 
 
 Auf einem Steg am Ufer liege ich und höre ihnen zu. Was diese Generation mit Vorliebe tut ist schwimmen und gleichzeitig reden. Die Frauen schwimmen zur Mitte des Sees und reden dabei über Hans, der einen Schlaganfall hatte und jetzt halb tot ist. Über eine kürzlich stattgefundene Beerdigung, deren Blumenschmuck nicht anständig  ausgerichtet war. Über jemanden, den sie beide kennen und blöd finden. Über einen anderen Hans, der im Nachbardorf eine Affäre hatte, aus der ein Kind hervorgegangen ist und das Kind ist jetzt eine erwachsene Frau und die macht irgendwas. Dann steigen sie aus dem Wasser und wackeln tropfnass zu ihren Häusern zurück. Ohne Handtuch.
 
