@@ -14,3 +14,5 @@ Auf einem Steg am Ufer liege ich und höre ihnen zu. Was diese Generation mit Vo
 Am See ist es jetzt still, wir liegen auf den morschen Stegbrettern, das Schilf rauscht im sachten Wind. Nach einer Weile wird es zu heiß und wir fahren zum Fluss. Am Fluss weht mehr Wind, das Wasser ist kälter und genau richtig, eine kleine schwarze Schlange schwimmt vorbei, die Kiefern am sandigen Ufer verströmen ätherische Durfststoffe.
 
 ![](/uploads/isar-2.jpg)
+
+Sonst fällt nichts vor. Die Schlange und kurze Aufregung darum ist auch schon alles, was der Tag an Adrenalin zu bieten hat.
