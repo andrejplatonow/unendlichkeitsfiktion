@@ -5,7 +5,7 @@ title: 'Es ist der Tag des Schilfs, der Schlange und der Wasserlilie. '
 ---
 ![](/uploads/schilf-1.jpg)
 
-Wir gehen zu einem See, der nicht mehr lange ein See sein wird, denn sein Boden wächst der Wasseroberfläche entgegen. Tief und klar genug zum Baden ist der See aber noch, das scheinen die alten Frauen des angrenzenden Dorfes genau zu wissen, sonst würden sie nicht mit hundertjährigem Katholizismus und Gicht in den Gelenken und nichts als ihrem Badeanzug ab Leib die Dorfstraße entlang zum Wasser wackeln. Mir gefällt die Wurschtigkeit, die sie dem Herzeigen ihres Körpers gegenüber aufbringen. Vielleicht hilft es, abgeschieden zu leben und bereits viele Jahrezehnte in diesem Körper zu sein, also eine Vertrautheit und damit Neutralität erlangt zu haben. Am See angekommen steigen die Frauen das Steintreppchen hinunter, stoßen sich ab und gleiten ins Schilf
+Wir gehen zu einem See, der nicht mehr lange ein See sein wird, denn sein Boden wächst der Wasseroberfläche entgegen. Tief und klar genug zum Baden ist der See aber noch, das scheinen die alten Frauen des angrenzenden Dorfes genau zu wissen, sonst würden sie davon absehen mit hundertjährigem Katholizismus und Gicht in den Gelenken und nichts als ihrem Badeanzug ab Leib die Dorfstraße entlang zum Wasser wackeln. Mir gefällt die Wurschtigkeit, die sie dem Herzeigen ihres Körpers gegenüber aufbringen. Vielleicht hilft es, abgeschieden zu leben und bereits viele Jahrezehnte in diesem Körper zu sein, also eine Vertrautheit und damit Neutralität erlangt zu haben. Am See angekommen steigen die Frauen das Steintreppchen hinunter, stoßen sich ab und gleiten ins Schilf
 
 ![](/uploads/wasserlilie.jpg)
 
