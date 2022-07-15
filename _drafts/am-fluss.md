@@ -13,6 +13,6 @@ Wir liegen an einem Steg und hörenIch liege zu. Was die erwähnte Generation ja
 
 ![](/uploads/isar-2.jpg)
 
-Am See ist es jetzt still, wir liegen auf den morschen Stegbrettern, das Schilf rauscht im sachten Wind. Nach einer Weile wird es zu heiß und wir fahren zum Fluss. Am Fluss weht mehr Wind, das Wasser ist kälter und genau richtig, eine kleine schwarze Schlange schwimmt vorbei, die Kiefern am sandigen Ufer verströmen ätherische Durfststoffe. Sonst fällt nichts vor. Die Schlange und die kurze Aufregung darum ist auch schon alles, was der Tag an Adrenalin zu bieten hat.
+Am See ist es jetzt still, wir liegen auf den morschen Stegbrettern, das Schilf rauscht im sachten Wind. Nach einer Weile packen wir zusammen und fahren zum Fluss. Am Fluss weht mehr Wind, das Wasser ist kälter und genau richtig, eine kleine schwarze Schlange schwimmt vorbei, die Kiefern am sandigen Ufer . Sonst fällt nichts vor. Die Schlange und eine kurze Aufregung darum ist alles, was der Tag an Adrenalin zu bieten hat.
 
 ![](/uploads/wasser-fusse.jpg)
