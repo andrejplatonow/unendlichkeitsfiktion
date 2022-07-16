@@ -13,7 +13,7 @@ Es ist ein sonniger Tag. Ich gehe auf den Dachgarten.
 ![](/uploads/dach2.jpg)
 
 Der Dachgarten des Instituts  ist übersät mit bodendeckenden Sukkulenten, Moos und dem Flor der jeweiligen Jahreszeit. Außer mir ist niemand hier. Ich weiß nicht warum. Der Brandschutzbeauftragte hat den Aufenthalt ausdrücklich genehmigt.  
-An die aufgewärmte Gebäudewand gelehnt schließe ich die Augen, spüre keinen Hunger oder den Impuls, etwas zu bedenken. Ich rutschte in die totale Absichtslosigkeit. Das gelingt mir nicht oft. Ich betrachte es nicht als Verdienst, wenn es eintritt. Aus dem Lüftungsschacht ist ein stetes sanftes Rauschen zu vernehmen. Weiter unten der Verkehr.
+An die aufgewärmte Gebäudewand gelehnt schließe ich die Augen, spüre keinen Hunger oder den Impuls, etwas zu bedenken. Ich rutsche in die totale Absichtslosigkeit. Das gelingt mir nicht oft. Ich betrachte es nicht als Verdienst, wenn es eintritt. Aus dem Lüftungsschacht ist ein stetes sanftes Rauschen zu vernehmen. Weiter unten der Verkehr.
 
 ![](/uploads/dach3.jpg)
 
