@@ -20,7 +20,7 @@ In unserem Rücken bewegen sich Weiden, ein weißer Schmetterling von der Größ
 
 ![](/uploads/kalksteinsammlerinnnen-isarbett.jpg)
 
-Und daneben die Gewissheit: Ich habe mir den Zustand, in dem ich jetzt bin, diese Gefühlslage, diese Beziehungen, diesen Ort weder nur erarbeitet, noch nur Glück gehabt. Wenn ich es beziffern wollte und das will ich manchmal, würde ich meinen Beitrag daran auf etwa 10 Prozent festlegen. Den ganzen Rest haben andere geleistet, erarbeitet, mit geschenkt, mit überlassen, auch ohne mich zu meinen. Es ist eine solche Legierung, in der man lebt. Eine Legierung aus wirklich allem.
+Und daneben die Gewissheit: Ich habe mir den Zustand, in dem ich jetzt bin, diese Gefühlslage, diese Beziehungen, diesen Ort weder nur erarbeitet, noch nur Glück gehabt. Wenn ich es beziffern wollte und das will ich manchmal, würde ich meinen Beitrag daran auf etwa 10 Prozent festlegen. Den ganzen Rest haben andere geleistet, erarbeitet, mir geschenkt, mir überlassen, auch ohne mich zu meinen. Es ist eine solche Legierung, in der man lebt. Eine Legierung aus wirklich allem.
 
 ![](/uploads/i-und-berge.jpg)
 
