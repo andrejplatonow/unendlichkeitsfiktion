@@ -3,7 +3,7 @@ date: 2022-07-16T22:18:08.000+02:00
 title: Es ist der Tag des gesegneten Pferds
 
 ---
-Einmal im Jahr wird hier für die Pferde gebetet. Dazu werden ihnen kunstvolle Frisuren geflochten, Bänder und Rosen in die Mähne gesteckt, die Schweife gekämmt, das Geschirr mit Schellen behängt. Manche der Pferde ziehen Holzwagen, die einzig zu diesem Zweck seit Jahrzehnten gewartet, gestrichen, lackiert und am Morgen der Segnung mit Blumenbouquets gekrönt werden.
+Einmal im Jahr wird hier für die Pferde gebetet. Dazu werden ihnen Frisuren geflochten, Bänder und Rosen in die Mähne gesteckt, die Schweife gekämmt, das Geschirr mit Schellen behängt. Manche der Pferde ziehen Holzwagen, die einzig zu diesem Zweck seit Jahrzehnten gewartet, gestrichen, lackiert und am Morgen der Segnung mit Blumenbouquets gekrönt werden.
 
 Der Maxmimalismus, mit dem hier die Mensch-Tier-Beziehung (oder Mensch-ehemaliges-Arbeitsgerät-Beziehung) gefeiert wird: ich bin sehr angetan.
 
@@ -17,6 +17,6 @@ Können Steine in der Sonne bleichen? Sie wirken so. Wie Wäsche, die ihre Farbe
 
 ![](/uploads/kalksteinsammlerinnnen-isarbett.jpg)
 
-In unserem Rücken bewegen sich die Weiden, ein weißschwarzer Schmetterling von der Größe meiner Hand landet auf der Schafgarbe. Es ist momentan eigentlich alles fast zu gut, um wahr zu sein. Ich weiß nicht wie ich das sagen soll: Es ist, als hätte ich mir dieses Leben vor langer Zeit ausgedacht. Und als sei ich dann da hineingegangen. 
+In unserem Rücken bewegen sich die Weiden, ein weißschwarzer Schmetterling von der Größe meiner Hand landet auf der Schafgarbe. Es ist momentan eigentlich alles fast zu gut, um wahr zu sein. Ich weiß nicht wie ich das sagen soll: Es ist, als hätte ich mir dieses Leben vor langer Zeit ausgedacht. Und als sei ich dann da hineingegangen.
 
-Ich habe mir den Zustand, in dem ich jetzt bin, diese Gefühlslage, diese Beziehungen, diesen Ort weder nur erarbeitet, noch nur Glück gehabt. Wenn ich es beziffern will und das will ich manchmal, würde ich meinen Beitrag daran auf etwa 10 Prozent festlegen. Den ganzen Rest haben andere geleistet, erarbeitet, mit geschenkt, mit überlassen. 
+Ich habe mir den Zustand, in dem ich jetzt bin, diese Gefühlslage, diese Beziehungen, diesen Ort weder nur erarbeitet, noch nur Glück gehabt. Wenn ich es beziffern will und das will ich manchmal, würde ich meinen Beitrag daran auf etwa 10 Prozent festlegen. Den ganzen Rest haben andere geleistet, erarbeitet, mit geschenkt, mit überlassen.
