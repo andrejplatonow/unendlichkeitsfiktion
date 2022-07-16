@@ -17,4 +17,6 @@ Können Steine in der Sonne bleichen? Sie wirken so. Wie Wäsche, die ihre Farbe
 
 ![](/uploads/kalksteinsammlerinnnen-isarbett.jpg)
 
-In unserem Rücken bewegen sich die Weiden, ein weißschwarzer Schmetterling von der Größe meiner Hand landet auf der Schafgarbe. Ich weiß nicht wie ich das sagen soll: Es ist, als hätte ich mir dieses Leben vor langer Zeit ausgedacht. Und als sei ich dann da hineingegangen. 
+In unserem Rücken bewegen sich die Weiden, ein weißschwarzer Schmetterling von der Größe meiner Hand landet auf der Schafgarbe. Es ist momentan eigentlich alles fast zu gut, um wahr zu sein. Ich weiß nicht wie ich das sagen soll: Es ist, als hätte ich mir dieses Leben vor langer Zeit ausgedacht. Und als sei ich dann da hineingegangen. 
+
+Ich habe mir den Zustand, in dem ich jetzt bin, diese Gefühlslage, diese Beziehungen, diesen Ort weder nur erarbeitet, noch nur Glück gehabt. Wenn ich es beziffern will und das will ich manchmal, würde ich meinen Beitrag daran auf etwa 10 Prozent festlegen. Den ganzen Rest haben andere geleistet, erarbeitet, mit geschenkt, mit überlassen. 
