@@ -3,7 +3,7 @@ date: 2022-07-16 21:18:08 +0200
 title: Es ist der Tag des gesegneten Pferds
 
 ---
-Einmal im Jahr wird hier für die Pferde gebetet. Dazu werden ihnen Frisuren geflochten, Bänder und Rosen in die Mähne gesteckt, die Schweife gekämmt, das Geschirr mit Schellen behängt. Manche der Pferde ziehen Holzwagen, die einzig zu diesem Zweck seit Jahrzehnten gewartet, gestrichen, lackiert und am Morgen der Segnung mit Blumenbouquets gekrönt werden. Der Maxmimalismus, mit dem in dieser Gegend die Mensch-Tier-Beziehung (oder Mensch-ehemaliges-Arbeitsgerät-Beziehung) gefeiert wird: ich bin sehr angetan.
+Einmal im Jahr wird hier für die Pferde gebetet. Dazu werden ihnen Frisuren geflochten, Bänder und Rosen in die Mähne gesteckt, die Schweife gekämmt, das Geschirr mit Schellen behängt. Manche der Pferde ziehen Holzwagen, die einzig zu diesem Zweck seit Jahrzehnten gewartet, gestrichen, lackiert und am Morgen der Segnung mit Blumenbouquets gekrönt werden. Der Maximalismus, mit dem in dieser Gegend die Mensch-Tier-Beziehung (oder Mensch-ehemaliges-Arbeitsgerät-Beziehung) gefeiert wird: ich bin sehr angetan.
 
 Ich war nie ein Pferdemädchen, kann mir aber vorstellen, wie erhebend es für 15-Jährige ist, auf einem großen schwarzen Wallach zur Kapelle zu reiten und dabei von allen gesehen zu werden. Die Mädchen an diesem Tag. Sie sind noch stärker als die Pferde.
 
