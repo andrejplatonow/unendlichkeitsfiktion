@@ -11,7 +11,7 @@ Auf den Bänken vorm Haus sitzen die Alten, daneben Eltern mit Kindern, fast all
 
 ![](/uploads/i.jpg)
 
-Als der Umzugs vorüber ist fahren wir zum Fluss. Er sieht harmlos aus an dieser Stelle. Das täuscht. Die Strömung in der Mitte ist reissend, ich kann nicht gegen die Fließrichtung anschwimmen. Zwei Bachstelzen hüpfen am Ufer herum. Können Steine in der Sone bleichen? Sie wirken wie Wäsche, die ihre Farbe verloren  hat.
+Als der Umzug vorüber ist fahren wir zum Fluss. Er sieht harmlos aus an dieser Stelle. Das täuscht. Die Strömung in der Mitte ist reissend, ich kann nicht gegen die Fließrichtung anschwimmen. Zwei Bachstelzen hüpfen am Ufer herum. Können Steine in der Sone bleichen? Sie wirken wie Wäsche, die ihre Farbe verloren  hat.
 
 ![](/uploads/rosa-stein2.jpg)
 
