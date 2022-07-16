@@ -17,6 +17,8 @@ Als der Umzugs vorbei ist fahren wir zum Fluss. Er sieht harmlos aus an dieser S
 
 ![](/uploads/rosa-stein2.jpg)
 
+Im Kiesbett liegend denke ich an das Wenlein-Gemälde Kalksteinsammlerinnen im Isarbett...
+
 Können Steine in der Sonne bleichen? Sie wirken wie Wäsche, die ihre Farbe verloren hat. Auf den Kiesbänken liegend denke ich an das Wenglein-Gemälde: Kalksteinsammlerinnen im Isarbett...
 
 ![](/uploads/kalksteinsammlerinnnen-isarbett.jpg)
