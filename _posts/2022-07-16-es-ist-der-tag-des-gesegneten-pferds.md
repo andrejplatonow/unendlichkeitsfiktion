@@ -11,12 +11,12 @@ Auf den Bänken vorm Haus sitzen die Alten, daneben Eltern mit Kindern, fast all
 
 ![](/uploads/i.jpg)
 
-Als der Umzug vorüber ist fahren wir zum Fluss. Er sieht harmlos aus an dieser Stelle. Das täuscht. Die Strömung in der Mitte ist reissend, ich kann nicht gegen die Fließrichtung anschwimmen. Zwei Bachstelzen hüpfen am Ufer herum. Können Steine in der Sone bleichen? Sie wirken wie Wäsche, die ihre Farbe verloren  hat.
+Als der Umzug vorüber ist fahren wir zum Fluss. Er sieht harmlos aus an dieser Stelle. Das täuscht. Die Strömung in der Mitte ist reissend, ich kann nicht gegen die Fließrichtung anschwimmen. Zwei Bachstelzen hüpfen am Ufer herum. Können Steine in der Sonne bleichen? Sie wirken wie Wäsche, die ihre Farbe verloren  hat.
 
 ![](/uploads/rosa-stein2.jpg)
 
-Im Kiesbett liegend denke ich an das Wenglein-Gemälde Kalksteinsammlerinnen im Isarbett...   
-In unserem Rücken bewegen sich Weiden, ein weißer Schmetterling von der Größe meiner Hand landet auf der Schafgarbe. Ich weiß nicht wie ich das sagen soll: Es ist, als hätte ich mir dieses Leben vor langer Zeit ausgedacht. Und als sei ich dann da hineingegangen. 
+Im Kiesbett liegend denke ich an das Wenglein-Gemälde Kalksteinsammlerinnen im Isarbett...  
+In unserem Rücken bewegen sich Weiden, ein weißer Schmetterling von der Größe meiner Hand landet auf der Schafgarbe. Ich weiß nicht wie ich das sagen soll: Es ist, als hätte ich mir dieses Leben vor langer Zeit ausgedacht. Und als sei ich dann da hineingegangen.
 
 ![](/uploads/kalksteinsammlerinnnen-isarbett.jpg)
 
@@ -24,4 +24,4 @@ Und daneben die Gewissheit: Ich habe mir den Zustand, in dem ich jetzt bin, dies
 
 ![](/uploads/i-und-berge.jpg)
 
-Auch merke ich hier: Ich bin so viel Gutes nicht gewohnt. Dass meine Sinne fast konstant offen bleiben können und ich mich nicht mehr oft verschließen muss. Dass es genug Raum und Schönheit gibt. Erreichbar für mich. 
+Auch merke ich hier: Ich bin so viel Gutes nicht gewohnt. Dass meine Sinne fast konstant offen bleiben können und ich mich nicht mehr oft verschließen muss. Dass es genug Raum und Schönheit gibt. Erreichbar für mich.
