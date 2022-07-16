@@ -1,5 +1,5 @@
 ---
-date: 2022-07-16T22:18:08.000+02:00
+date: 2022-07-16 21:18:08 +0200
 title: Es ist der Tag des gesegneten Pferds
 
 ---
