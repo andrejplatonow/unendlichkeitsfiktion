@@ -17,14 +17,13 @@ Als der Umzugs vorbei ist fahren wir zum Fluss. Er sieht harmlos aus an dieser S
 
 ![](/uploads/rosa-stein2.jpg)
 
-Im Kiesbett liegend denke ich an das Wenglein-Gemälde Kalksteinsammlerinnen im Isarbett... 
-
-Können Steine in der Sonne bleichen? Sie wirken wie Wäsche, die ihre Farbe verloren hat. Auf den Kiesbänken liegend denke ich an das Wenglein-Gemälde: Kalksteinsammlerinnen im Isarbett...
+Im Kiesbett liegend denke ich an das Wenglein-Gemälde Kalksteinsammlerinnen im Isarbett...   
+In unserem Rücken bewegen sich Weiden, ein weißer Schmetterling von der Größe meiner Hand landet auf der Schafgarbe. Ich weiß nicht wie ich das sagen soll: Es ist, als hätte ich mir dieses Leben vor langer Zeit ausgedacht. Und als sei ich dann da hineingegangen. 
 
 ![](/uploads/kalksteinsammlerinnnen-isarbett.jpg)
 
-In unserem Rücken bewegen sich die Weiden, ein weißer Schmetterling von der Größe meiner Hand landet auf der Schafgarbe. Ich weiß nicht wie ich das sagen soll: Es ist, als hätte ich mir dieses Leben vor langer Zeit ausgedacht. Und als sei ich dann da hineingegangen. 
+Und daneben die Gewissheit: Ich habe mir den Zustand, in dem ich jetzt bin, diese Gefühlslage, diese Beziehungen, diesen Ort weder nur erarbeitet, noch nur Glück gehabt. Wenn ich es beziffern wollte und das will ich manchmal, würde ich meinen Beitrag daran auf etwa 10 Prozent festlegen. Den ganzen Rest haben andere geleistet, erarbeitet, mit geschenkt, mit überlassen, auch ohne mich direkt zu meinen.
 
-Und daneben die Gewissheit: Ich habe mir den Zustand, in dem ich jetzt bin, diese Gefühlslage, diese Beziehungen, diesen Ort weder nur erarbeitet, noch nur Glück gehabt. Wenn ich es beziffern wollte und das will ich manchmal, würde ich meinen Beitrag daran auf etwa 10 Prozent festlegen. Den ganzen Rest haben andere geleistet, erarbeitet, mit geschenkt, mit überlassen, auch ohne mich direkt zu adressieren.
+![](/uploads/i-und-berge.jpg)
 
-Ich merke hier auch: Ich bin so viel Gutes nicht gewohnt. Dass es konstant und berstend viel Gutes gibt. Erreichbar für mich. 
+Auch merke ich hier: Ich bin so viel Gutes nicht gewohnt. Dass meine Sinne fast konstant offen bleiben können und ich mich nicht mehr oft verschließen muss. Dass es genug Raum und Schönheit gibt. Erreichbar für mich. 
