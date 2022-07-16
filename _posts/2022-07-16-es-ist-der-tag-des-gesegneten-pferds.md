@@ -7,7 +7,7 @@ Einmal im Jahr wird hier für die Pferde gebetet. Dazu werden ihnen Frisuren gef
 
 Ich war nie ein Pferdemädchen, kann mir aber vorstellen, wie erhebend es für 15-Jährige ist, auf einem großen schwarzen Wallach zur Kapelle zu reiten und dabei von allen gesehen zu werden. Die Mädchen an diesem Tag. Sie sind noch stärker als die Pferde.
 
-Auf den Bänken vorm Haus sitzen die Alten, daneben Eltern mit Kindern, fast alle in Tracht. Jugendliche springen auf die Trittbretter der Wagen , führen Ponys an der Leine oder lenken Kutschen. Die Sonne kracht vom blauen Himmel herunter, es liegen Frechheit, Stolz und Kulturgläubigkeit  in der Luft, wie ich sie, so entschlossen zelebriert, nur aus Bayern kenne.
+Auf den Bänken vorm Haus sitzen die Alten, daneben Eltern mit Kindern, fast alle in Tracht. Jugendliche springen auf die Trittbretter der Wagen, führen Ponys an der Leine oder lenken Kutschen. Die Sonne kracht vom blauen Himmel herunter, es liegen Frechheit, Stolz und Kulturgläubigkeit  in der Luft, wie ich sie, so entschlossen zelebriert, nur aus Bayern kenne.
 
 ![](/uploads/i.jpg)
 
