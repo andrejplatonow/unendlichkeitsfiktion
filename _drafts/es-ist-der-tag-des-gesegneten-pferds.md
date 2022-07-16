@@ -13,9 +13,7 @@ Auf den Bänken vorm Haus sitzen Senioren, daneben Eltern mit Kindern, fast alle
 
 ![](/uploads/i.jpg)
 
-Als der Umzugs vorbei ist fahren wir zum Fluss. Er sieht harmlos aus an dieser Stelle. Das täuscht. Die Strömung in der Mitte ist reissend, ich halt mich an den Steinen des Flussbetts fest. 
-
-Als der Umzug weiterzieht fahren wir zum Fluss. Diesmal an eine andere Stelle. Die Strömung sieht harmlos aus, aber das täuscht. Ich liege im Flussbett und halte mich an den Steinen fest. Es ist unmöglich entgegen der Fließrichtung zu schwimmen.
+Als der Umzugs vorbei ist fahren wir zum Fluss. Er sieht harmlos aus an dieser Stelle. Das täuscht. Die Strömung in der Mitte ist reissend. Zwei Bachstelzen hüpfen am Ufer herum. Können Steine in der Sone bleichen? Sie wirken wie Wäsche, die ihre Farbe verloren  hat.
 
 ![](/uploads/rosa-stein2.jpg)
 
