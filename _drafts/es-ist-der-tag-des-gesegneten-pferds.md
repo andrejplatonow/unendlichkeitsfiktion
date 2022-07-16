@@ -11,4 +11,9 @@ Ich war nie ein Pferdemädchen, kann mir aber vorstellen, wie gut es den 15-Jäh
 
 Auf den Bänken vorm Haus sitzen die Alten, daneben Eltern mit Kindern, fast alle in Tracht. Jugendiche springen von den Trittbrettern der Wagen herunter und springen wieder auf, führen Ponys an der Leine oder lenken Kutschen. Die Sonne kracht vom blauen Himmel herunter, es ist ein Gefühl von Frechheit und Stolz in der Luft, wie ich es bisher nur aus Bayern kenne.
 
-Als der Umzug weiterzieht fahren wir zum Fluss. Diesmal an eine andere Stelle. Die Isar sieht harmlos aus, aber das täuscht. Die Strömung in der Mitte ist 
+Als der Umzug weiterzieht fahren wir zum Fluss. Diesmal an eine andere Stelle. Die Strömung sieht harmlos aus, aber das täuscht. Ich liege im Flussbett und halte mich an den Steinen fest. Es ist unmöglich entgegen der Fließrichtung zu schwimmen.   
+  
+Können Steine in der Sonne bleichen? Sie wirken so. Wie Wäsche, die ihre Farbe verloren hat. Ich denke auf den Kiesbänken oft an das Wenglein-Gemälde in der Pinakothek: Kalksteinsammlerinnen im Isarbett...
+
+  
+In unserem Rücken bewegen sich die Weiden, ein weißer Schmetterling von der größe meiner Hand landet auf der Schafgarbe. Ich weiß nicht wie ich das sagen soll: 
