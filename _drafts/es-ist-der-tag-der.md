@@ -5,7 +5,7 @@ title: You, who are broken open
 ---
 Wir sitzen auf einem Berg und schauen zu. Ein paar Meter entfernt stehen die Kühe und schauen zu. Dahinter die Gämse, Ameisenhaufen und Alpensalamander - alle schauen ihm zu. Er kann Kung Fu.
 
-Es ist der Tag, an dem ein Freund uns an seinem 7 Jahre währenden Kung  Training in Form einer kleinen Kampfeinlage vor Bergpanorama teilhaben lässt.
+Es ist der Tag, an dem ein Freund uns an seinem 7 Jahre währenden Kung Training in Form einer kleinen Kampfeinlage vor Bergpanorama teilhaben lässt.
 
 Es ist der Tag, an dem 2/5 der Gruppe nackt in die Gumpe springen, Gedichtfragmente aufgesagt werden und 40 Zecken an einem einzigen Mann hängen. Der Tag des Kreislaufs, der flüssigen Schokoladenkekse und nachgeholten Erzählungen. Es ist vor allem der Tag des Zurückschauens auf den elendlangen Weg hin zu dieser heute okayen Körperlichkeit. Sich einigermaßen eingerichtet, vielleicht sogar mal kurz Zuneigung gefühlt zu haben für diese Gefährtin, die überall dabei war und alles bezeugt.
 
