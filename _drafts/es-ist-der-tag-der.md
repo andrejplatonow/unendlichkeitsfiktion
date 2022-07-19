@@ -7,4 +7,6 @@ Wir sitzen auf einem Berg und schauen ihm zu. Ein paar Meter von uns entfernt st
 
 Es ist der Tag, an dem ein Freund uns an seinem 7 Jahre währenden Kung-fu Training in Form einer kleinen Kampfeinlage vor Bergpanorama teilhaben lässt.
 
-Der Tag, an dem 2/5 der Gruppe nackt in die Gumpe springen, Gedichtfragmente aufgesagt werden und 40 Zecken an einem einzigen Mann hängen. Es ist der Tag des Kreislaufs, der flüssigen Schokoladenkekse und nachgeholten Erzählungen von Scham und Ablehnung. Es ist vor allem der Tag des Zurückschauens auf den elendlangen Weg hin zu diesem heute okayen Körperlichkeit. Man selbst sein zu können in einem Körper, der überall dabei war und alles bezeugt und ein Recht hat darauf, so auszusehen.
+Der Tag, an dem 2/5 der Gruppe nackt in die Gumpe springen, Gedichtfragmente aufgesagt werden und 40 Zecken an einem einzigen Mann hängen. Es ist der Tag des Kreislaufs, der flüssigen Schokoladenkekse und nachgeholten Erzählungen von Scham und Ablehnung. Es ist vor allem der Tag des Zurückschauens auf den elendlangen Weg hin zu diesem heute okayen Körperlichkeit. Man selbst sein zu können in einem Körper, der überall dabei war und alles bezeugt. Ich muss, eigentlich immer, wenn ich einen demenzkranke Person treffe, daran denken, wie das Gehirn dieser Person jetzt nicht mehr weiß, was war. Der Körper aber schon. 
+
+Und wie auch ich, als noch kognitiv intakte Person, nicht mehr weiß, was vor meinem 3. Lebensjahr war. Mein Körper aber schon. 
