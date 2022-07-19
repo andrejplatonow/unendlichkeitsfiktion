@@ -13,4 +13,6 @@ Ich muss, eigentlich immer, wenn ich eine demenzkranke Person treffe, daran denk
 
 Und wie auch ich, als noch kognitiv intakte Person, nicht mehr weiß, was vor meinem 3. Lebensjahr war. Mein Körper aber schon.
 
-Weil mein Körper alles gefühlt hat und sich nicht rausreden und rausfantasieren konnte. Weil er alle Emotionen ausgetragen hat.
+Weil mein Körper alles gefühlt hat und sich nicht rausreden und rausfantasieren konnte. Weil er alle Emotionen ausgetragen hat und dies  tut.
+
+![](/uploads/signal-2022-07-17-21-31-28-428-1.jpg)
