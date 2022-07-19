@@ -1,6 +1,6 @@
 ---
 date: 2022-07-18T18:38:44.000+02:00
-title: You, who are broken open
+title: You who are broken open
 
 ---
 Wir sitzen auf einem Berg und schauen zu. Ein paar Meter entfernt stehen die Kühe und schauen zu. Dahinter die Gämse, Ameisenhaufen und Alpensalamander - alle schauen ihm zu. Er kann Kung Fu.
