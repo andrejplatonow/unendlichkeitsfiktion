@@ -11,7 +11,7 @@ Es ist der Tag, an dem 2/5 der Gruppe nackt in die Gumpe springen, Gedichtfragme
 
 Ich muss, eigentlich immer, wenn ich eine demenzkranke Person treffe, daran denken, wie das Gehirn dieser Person jetzt nicht mehr weiß, was war. Ihr Körper aber schon. Und wie auch ich, als kognitiv noch intakte Person, nicht mehr weiß, was vor meinem 3. Lebensjahr war. Mein Körper aber schon.
 
-Wie mein Körper alles fühlte und nicht abhauen und sich nicht rausfantasieren konnte. Wie er alle Emotionen ausgetragen hat und dies  weiterhin tut.
+Wie mein Körper alles fühlte und nicht abhauen und sich nicht rausfantasieren konnte. Wie er alle Emotionen ausgetragen hat und dies  weiterhin tut und abbildet.
 
 ![](/uploads/signal-2022-07-17-21-31-28-428-1.jpg)
 
