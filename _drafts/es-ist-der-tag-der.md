@@ -17,4 +17,4 @@ Weil mein Körper alles  und nicht abhauen und sich nicht rausfantasieren konnte
 
 ![](/uploads/signal-2022-07-17-21-31-28-428-1.jpg)
 
-Wir sind erst spät zu Hause an dem Tag. Es reicht nur noch für Rucksack leeren und Licht ausmachen. Die Kühe, die Ameisen und Alpensalamander - sie werden noch bis tief in die Nacht von uns reden. Martial Art, werden sie sagen, once in a life 
+Wir sind erst spät zu Hause an dem Tag. Es reicht nur noch für Rucksack leeren und Licht ausmachen. Die Kühe, die Ameisen und Alpensalamander - sie werden noch bis tief in die Nacht von uns reden. Martial Arts, werden sie sagen, once in a lifetime.
