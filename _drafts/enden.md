@@ -3,7 +3,7 @@ date: 2022-07-26T10:28:26.000+02:00
 title: Enden
 
 ---
-Die Fortbildung endet. Wir feiern den Abschluss, essen Paella, forsten durch die letzten Theorie- und Praxisblöcke. Einer der Teilnehmer, der mir vor 2 Jahren vor versammelter Mannschaft einen schweren Vorwurf gemacht hat, nimmt alles zurück. Dass er dazu in der Lage zu sein, ist schon toll. Noch besser, dass er dafür 2 Jahre brauchte. Ich hatte reichlich Gelegenheit zu ergründen, was an den Vorwürfen dran ist, während er immer mehr Vertrauen zu mir fasste und sich gegen Ende häufig an mich wandte. Ich habe aufgrund der Kollision mit ihm etwas überdacht und geändert, was ich vorher für absolut richtig hielt. Weder ich noch er konnten diese Entwicklung beschleunigen.
+Die Fortbildung endet. Wir feiern den Abschluss, essen Paella, forsten durch die letzten Theorie- und Praxisblöcke. Einer der Teilnehmer, der mir vor 2 Jahren vor versammelter Mannschaft einen schweren Vorwurf gemacht hat, nimmt alles zurück. Dass er dazu in der Lage , ist schon toll. Noch besser, dass er dafür 2 Jahre brauchte. Ich hatte reichlich Gelegenheit zu ergründen, was an den Vorwürfen dran ist, während er Vertrauen zu mir fasste und sich gegen Ende häufig an mich wandte. Ich habe aufgrund der Kollision mit ihm etwas überdacht und geändert, was ich vorher für absolut richtig hielt. Weder ich noch er konnten diese Entwicklung beschleunigen.
 
 Langsamer, sagst du, wie immer.  
 Sei langsam.  
@@ -20,4 +20,4 @@ Die zweite Kollegin steht auf dem ganzen Fuß; zentriert. Sie trifft eindeutig b
 
 ![](/uploads/blaue-tur.jpg)
 
-Mein Körper ist die Manifestation meiner inneren Haltung. Er ist daneben auch die Möglichkeit, meine innere Haltung von außen zu kitzeln. Sie neuierig zu machen auf eine neue Erfahrung. 
+Mein Körper ist die Manifestation meiner inneren Haltung. Er ist daneben auch die Möglichkeit, meine innere Haltung von außen zu kitzeln. Sie neuierig zu machen auf eine neue Erfahrung.
