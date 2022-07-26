@@ -11,6 +11,10 @@ Sei langsam.
 
 ![](/uploads/abgeerntetes-feld.jpg)
 
-Dann habe ich Urlaub. Ich schiebe alles Anstehende auf die lange Bank und fahre zu den Kiesufern. Dort bin ich allein. Ich lege mich ins Wasser und halte mich mit den Händen an Steinen im Flussbett fest. Die Strömung hebt meinen Körper. Ich verharre eine Weile in der Spannung zwischen Halten und Gezogen werden. Bevor ich loslasse.
+Dann habe ich Urlaub. Ich schiebe alles Anstehende auf die lange Bank und fahre zu den Kiesufern. Dort bin ich allein. Ich lege mich ins Wasser und halte mich mit den Händen an Steinen im Flussbett fest. Die Strömung hebt meinen Körper. Ich verharre eine Weile in der Spannung zwischen Halten und Gezogen werden. Bevor ich loslasse.zum Wasser
 
 ![](/uploads/man-kann-den-fluss-nicht-aufhalten.jpg)
+
+Ich darf zwei Kolleginnen jeweils 30 Minuten beim Arbeiten beobachten. Beide stehen. Beide sind aufgeregt. Beide müssen eine konfliktreiche Situation aufnehmen, verarbeiten, lenken und zu einem tragbaren Ergebnis führen.  
+Die erste Kollegin steht in den 30 Minuten konstant leicht nach vorn gebeugt, also mit dem Gewicht auf den Zehen.   
+Die zweite Kollegin steht auf dem ganzen Fuß; zentriert. Letztere trifft eindeutig die besseren Entscheidungen. Sie lässt sich mehr Zeit, zu fühlen was passiert, sie erforscht, sie interpretiert nicht vorschnell.
