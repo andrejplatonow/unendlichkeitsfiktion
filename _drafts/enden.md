@@ -21,3 +21,7 @@ Die zweite Kollegin steht auf dem ganzen Fuß; zentriert. Sie trifft eindeutig b
 ![](/uploads/blaue-tur.jpg)
 
 Mein Körper ist eine Ausgangssituation. Er determiniert und begrenzt mich. Er ist darüber hinaus auch die Manifestation meiner inneren Haltung. Und die Möglichkeit, meine innere Haltung von außen zu kitzeln. Sie neugierig zu machen auf eine neue Erfahrung. 
+
+![](/uploads/blaues-kleid-garten.jpg)
+
+Im Garten läuft es so mittelmäßig. Der dreißig Jahre alte Apfelbaum ist morsch und produziert schlecht schmeckende Äpfel, die unreif auf die Erde fallen oder am Zweig verfaulen. Der Baum ist definitiv ein Fall für 
