@@ -18,3 +18,7 @@ Dann habe ich Urlaub. Ich schiebe alles Anstehende auf die lange Bank und fahre 
 Ich darf zwei Kolleginnen jeweils 30 Minuten beim Arbeiten zusehen. Beide stehen. Beide sind aufgeregt. Beide müssen eine konfliktreiche Situation aufnehmen, verarbeiten, lenken und zu einem tragbaren Ergebnis führen.  
 Die erste Kollegin steht in den 30 Minuten konstant leicht nach vorn gebeugt, also mit dem Gewicht auf den Zehen. Sie wirkt unter Zugzwang. Hilfsbereit auf nicht immer hilfreiche Weise, obwohl sie insgesamt eine kompetente Person ist.  
 Die zweite Kollegin steht auf dem ganzen Fuß; zentriert. Sie trifft eindeutig bessere Entscheidungen. Sie lässt sich Zeit, zu fühlen was passiert. Sie kommt zu präzisen Beobachtungen. 
+
+![](/uploads/blaue-tur.jpg)
+
+Der Körper ist die Manifestation unserer Haltung. Er ist daneben auch ein Möglichkeit, die innere Haltung neu zu formen. Zu anderen Schlüssen zu kommen. 
