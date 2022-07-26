@@ -15,6 +15,6 @@ Dann habe ich Urlaub. Ich schiebe alles Anstehende auf die lange Bank und fahre 
 
 ![](/uploads/man-kann-den-fluss-nicht-aufhalten.jpg)
 
-Ich darf zwei Kolleginnen jeweils 30 Minuten beim Arbeiten beobachten. Beide stehen. Beide sind aufgeregt. Beide müssen eine konfliktreiche Situation aufnehmen, verarbeiten, lenken und zu einem tragbaren Ergebnis führen.  
-Die erste Kollegin steht in den 30 Minuten konstant leicht nach vorn gebeugt, also mit dem Gewicht auf den Zehen.   
-Die zweite Kollegin steht auf dem ganzen Fuß; zentriert. Letztere trifft eindeutig die besseren Entscheidungen. Sie lässt sich mehr Zeit, zu fühlen was passiert, sie erforscht, sie interpretiert nicht vorschnell.
+Ich darf zwei Kolleginnen jeweils 30 Minuten beim Arbeiten zusehen. Beide stehen. Beide sind aufgeregt. Beide müssen eine konfliktreiche Situation aufnehmen, verarbeiten, lenken und zu einem tragbaren Ergebnis führen.  
+Die erste Kollegin steht in den 30 Minuten konstant leicht nach vorn gebeugt, also mit dem Gewicht auf den Zehen. Sie wirkt unter Zugzwang. Hilfsbereit auf nicht immer hilfreiche Weise, obwohl sie insgesamt eine kompetente Person ist.  
+Die zweite Kollegin steht auf dem ganzen Fuß; zentriert. Sie trifft eindeutig bessere Entscheidungen. Sie lässt sich Zeit, zu fühlen was passiert. Sie kommt zu präzisen Beobachtungen. 
