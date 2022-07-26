@@ -24,7 +24,7 @@ Mein Körper ist eine Ausgangssituation. Er determiniert und begrenzt mich. Er i
 
 ![](/uploads/blaues-kleid-garten.jpg)
 
-Im Garten läuft es so mittelmäßig. Der dreißig Jahre alte Apfelbaum ist morsch und produziert schlecht schmeckende Äpfel. Die Äpfel fallen unreif auf die Erde oder verfaulen noch am Zweig. Die Schnecken kommen zu Hunderten und ernähren sich und ihre Nachkommen, besaufen sich am Vergorenen und zeugen noch mehr Nachkommen. Der Baum muss weg. Ich will aber kein Mensch sein, der Bäume fällt. Ich fürchte auch ein wenig, welches Licht das auf mich wirft. Im Sinne von: kommt hier her, übernimmt den Garten der verstorbenen Frau und haut sofort die schönen Bäume um.   
+Im Garten läuft es so mittelmäßig. Der dreißig Jahre alte Apfelbaum ist morsch und produziert schlecht schmeckende Äpfel. Die Äpfel fallen unreif auf die Erde oder verfaulen noch am Zweig. Die Schnecken kommen zu Hunderten und ernähren sich und ihre Nachkommen, besaufen sich am Vergorenen und zeugen noch mehr Nachkommen. Der Baum muss weg. Ich will aber kein Mensch sein, der Bäume fällt. Ich fürchte auch ein wenig, welches Licht das in der Nachbarschaft auf mich wirft. Im Sinne von: kommt hier her, übernimmt den Garten der verstorbenen Frau und haut sofort die schönen Bäume um.   
   
 Ich will einen anderen Baum. Einen Tulpenbaum oder eine Weide oder den Baum mit diesen Blättern, dessen Namen ich vergessen habe.
 
