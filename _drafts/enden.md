@@ -20,4 +20,4 @@ Die zweite Kollegin steht auf dem ganzen Fuß; zentriert. Sie trifft eindeutig b
 
 ![](/uploads/blaue-tur.jpg)
 
-Mein Körper ist eine Vorgabe. Er determiniert und begrenzt mich. die Manifestation meiner inneren Haltung. Er ist daneben auch die Möglichkeit, meine innere Haltung von außen zu kitzeln. Sie neugierig zu machen auf eine neue Erfahrung.
+Mein Körper ist eine Ausgangssituation. Er determiniert und begrenzt mich. Er ist danrüber hinaus auch die Manifestation meiner inneren Haltung. Und daneben auch die Möglichkeit, meine innere Haltung von außen zu kitzeln. Sie neugierig zu machen auf eine neue Erfahrung.
