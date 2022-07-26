@@ -15,7 +15,7 @@ Dann habe ich Urlaub, schiebe alles Anstehende auf die lange Bank und fahre zu d
 
 ![](/uploads/man-kann-den-fluss-nicht-aufhalten.jpg)
 
-Ich darf zwei Kolleginnen jeweils 30 Minuten beim Arbeiten zusehen. Beide stehen. Beide sind aufgeregt. Beide müssen eine konfliktreiche Situation aufnehmen, verarbeiten, lenken und zu einem tragbaren Ergebnis führen. Die erste Kollegin steht in den 30 Minuten konstant leicht nach vorn gebeugt, also mit dem Gewicht auf den Zehen. Sie wirkt unter Zugzwang. Hilfsbereit auf nicht immer hilfreiche Weise, obwohl sie insgesamt eine kompetente Person ist.  
+Ich darf zwei Kolleginnen jeweils 30 Minuten beim Arbeiten zusehen. Beide stehen während diesen 30 . Beide sind aufgeregt. Beide müssen eine konfliktreiche Situation aufnehmen, verarbeiten, lenken und zu einem tragbaren Ergebnis führen. Die erste Kollegin steht in den 30 Minuten konstant leicht nach vorn gebeugt, also mit dem Gewicht auf den Zehen. Sie wirkt unter Zugzwang. Hilfsbereit auf nicht immer hilfreiche Weise, obwohl sie insgesamt eine kompetente Person ist.  
 Die zweite Kollegin steht auf dem ganzen Fuß; zentriert. Sie trifft eindeutig bessere Entscheidungen. Sie lässt sich Zeit, zu fühlen was passiert. Sie kommt zu präzisen Beobachtungen. In ihrem Beisein scheint sich der Raum auszudehen und mehr Optionen zu beinhalten, als vorher.
 
 ![](/uploads/blaue-tur.jpg)
