@@ -21,4 +21,4 @@ Die zweite Kollegin steht auf dem ganzen Fuß; zentriert. Sie trifft eindeutig b
 
 ![](/uploads/blaue-tur.jpg)
 
-Der Körper ist die Manifestation unserer Haltung. Er ist daneben auch ein Möglichkeit, die innere Haltung neu zu formen. Neu zu entdecken. 
+Mein Körper ist die Manifestation meiner inneren Haltung. Er ist daneben auch die Möglichkeit, meine innere Haltung von außen zu kitzeln. Sie neuierig zu machen auf eine neue Erfahrung. 
