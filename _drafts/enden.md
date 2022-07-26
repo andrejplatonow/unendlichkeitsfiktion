@@ -11,4 +11,6 @@ Sei langsam.
 
 ![](/uploads/abgeerntetes-feld.jpg)
 
-Dann habe ich Urlaub. Ich schiebe alles Anstehende auf die lange Bank und fahre zum Wasser. Dort bin ich allein. 
+Dann habe ich Urlaub. Ich schiebe alles Anstehende auf die lange Bank und fahre zu den Kiesufern. Dort bin ich allein. Ich lege mich ins Wasser und halte mich mit den Händen an Steinen im Flussbett fest. Die Strömung hebt meinen Körper. Ich verharre eine Weile so, in der Spannung zwischen Halten und Gezogen werden. Bevor ich loslasse.
+
+![](/uploads/man-kann-den-fluss-nicht-aufhalten.jpg)
