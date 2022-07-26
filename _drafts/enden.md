@@ -3,8 +3,10 @@ date: 2022-07-26 10:28:26 +0200
 title: Enden
 
 ---
-Die Fortbildung endet. Wir feiern den Abschluss, essen Paella, forsten durch die letzten Theorie- und Praxisblöcke. Einer der Teilnehmer, der mir vor 2 Jahren vor versammelter Mannschaft einen schweren Vorwurf gemacht hat, nimmt alles zurück. Dass er dazu in der Lage ist, ist schon toll. Noch besser, dass er dafür 2 Jahre brauchte. Ich hatte reichlich Gelegenheit zu ergründen, was an den Vorwürfen dran ist, während er immer mehr Vertrauen zu mir fasste und sich gegen Ende häufig an mich wandte. Weder ich noch er konnten diese Entwicklung beschleunigen. 
+Die Fortbildung endet. Wir feiern den Abschluss, essen Paella, forsten durch die letzten Theorie- und Praxisblöcke. Einer der Teilnehmer, der mir vor 2 Jahren vor versammelter Mannschaft einen schweren Vorwurf gemacht hat, nimmt alles zurück. Dass er dazu in der Lage ist, ist schon toll. Noch besser, dass er dafür 2 Jahre brauchte. Ich hatte reichlich Gelegenheit zu ergründen, was an den Vorwürfen dran ist, während er immer mehr Vertrauen zu mir fasste und sich gegen Ende häufig an mich wandte. Weder ich noch er konnten diese Entwicklung beschleunigen.
 
-Langsamer, sagst du wie immer.   
-Sei langsam.    
+Langsamer, sagst du wie immer.  
+Sei langsam.  
 \[H. Domin\]
+
+![](/uploads/abgeerntetes-feld.jpg)
