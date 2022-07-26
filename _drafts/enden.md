@@ -10,3 +10,5 @@ Sei langsam.
 \[H. Domin\]
 
 ![](/uploads/abgeerntetes-feld.jpg)
+
+Dann habe ich Urlaub. Ich schiebe alles Anstehende auf die lange Bank und fahre zum Wasser. Dort bin ich allein. 
