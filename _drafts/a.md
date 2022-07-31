@@ -9,4 +9,4 @@ Wir unterhalten uns eine Weile. Und eine Weile schauen wir uns nur an. Etwa 10 M
 
 ![](/uploads/kamel.jpg)
 
-Ich verwende häufig Bilder von Niko Pirsomani. Hier 'Tatar Kameltreiber'. 
+Ich verwende häufig Bilder von Niko Pirsomani.
