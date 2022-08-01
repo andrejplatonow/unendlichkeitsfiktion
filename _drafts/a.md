@@ -9,4 +9,6 @@ Die Angst ist sofort da und redebereit. Wir unterhalten uns eine Weile. Dann sch
   
 ![](/uploads/kamel.jpg)
 
-Es ist so viel einfacher, sich vernünftig zu ernähren, wenn man Urlaub hat. Abends Kraft und Zeit übrig zu haben, einen Salat zu waschen und Gemüse zu kochen. Und was für ein Krampf das ist, im Gegenzug während einer Arbeitswoche wenigstens nur jeden zweiten Tag convenience food herzunehmen.
+Es ist so viel einfacher, sich vernünftig zu ernähren, wenn man Urlaub hat. Abends Kraft und Zeit übrig haben, einen Salat zu waschen und Gemüse zu kochen. Und was für ein Krampf das im Gegenzug ist, während einer Arbeitswoche wenigstens nur jeden zweiten Tag convenience food herzunehmen.
+
+![](/uploads/abgeerntetes-feld2.jpg)
