@@ -14,3 +14,5 @@ Es ist so viel einfacher, sich vernünftig zu ernähren, wenn man Urlaub hat. Ab
 ![](/uploads/abgeerntetes-feld2.jpg)
 
 Laut des Kamelführers, der uns vor einigen Jahren über seinen Hof führte, vertragen die Tiere den Winter sehr gut. Sie sind aktiver, spielfreudig und rennen absichtlich in Schneehaufen rein. Ich habe jetzt schon eine Weile keine Kamele mehr gesehen. Vielleicht wird es wieder Zeit für eine Wanderung an der Mangfall.
+
+Noch ein Urlaubs-Special. Vormittags ins Gartencenter gehen. Den Wagen mal so richtig langsam den Gang entlang schieben. Bei jeder Malve ungebührlich lang überlegen, Handy rausholen, recherchieren, ob die wirklich winterfest ist usw. Danach keinen Termin mehr an dem Tag.
