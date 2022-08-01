@@ -13,4 +13,4 @@ Es ist so viel einfacher, sich vernünftig zu ernähren, wenn man Urlaub hat. Ab
 
 ![](/uploads/abgeerntetes-feld2.jpg)
 
-Laut des Kamelführers, der uns vor einigen Jahren über seinen Hof führte, vertragen die Tiere den Winter sehr gut. Sie sind aktiver, spielfreudig und rennen gern in Schneehaufen rein. Ich habe jetzt schon eine Weile keine Kamele mehr gesehen. Vielleicht wird es wieder Zeit für eine Wanderung an der Mangfall entlang.
+Laut des Kamelführers, der uns vor einigen Jahren über seinen Hof führte, vertragen die Tiere den Winter sehr gut. Sie sind aktiver, spielfreudig und rennen gern in Schneehaufen rein. Ich habe jetzt schon eine Weile keine Kamele mehr gesehen. Vielleicht wird es wieder Zeit für eine Wanderung an der Mangfall.
