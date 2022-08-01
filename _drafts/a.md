@@ -7,3 +7,5 @@ Ein ungutes Gefühl verdichtet sich. Gleich am Morgen habe ich den Eindruck, es 
 Die Angst ist sofort da und redebereit. Wir unterhalten uns eine Weile. Dann schauen wir uns nur an, ohne Worte. Den Rest des Weges kann ich sie an meiner Seite fühlen, sie hat ein Gesicht, das mir gleicht. Ich kann im Nachhinein nicht verstehen, warum ich sie ignorieren wollte.
 
 ![](/uploads/kamel.jpg)
+
+Es ist so viel einfacher, sich vernünftig zu ernähren, wenn man Urlaub hat. Abends ist genug Zeit und Kraft übrig, einen Salat zu waschen und Gemüse zu kochen. Und was für ein Krampf das ist, während einer Arbeitswoche wenigstens nur jeden zweiten Tag convenience food herzunehmen. 
