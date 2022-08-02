@@ -7,3 +7,5 @@ Man kann betrunken werden von diesen Nächten. Dem Geruch des Heus, der Frequenz
 Warum sie da gewohnt haben, wie lang, freiwillig, unfreiwillig - das ist nicht mehr einfach zu klären.  
 2019 waren auf einmal alle möglichen Freunde und Bekannte in Georgien. Alle sagten: Fahr hin. Es ist großartig. Ich bin nicht gefahren. Ich war beschäftigt. Es war kompliziert zu der Zeit und ich wollte keine weiteren Kompliziertheiten: Patriachat, Homophobie, hineinzugeraten in Landschaften, an denen emotional zu viel dran hängt.   
 2011 hatte ich eine georgische Kollegin, die über Kafka schrieb. Sie hatte noch in Georgien Deutsch gelernt, um ihn im Original lesen zu können. Irgendwann reichte das nicht mehr und sie wanderte aus, um in seiner Sprache über ihn und seine Texte schreiben zu können. Ich konnte das nachvollziehen; sich in eine Kunstform so zu verlieben, dass man am Ende das Land wechseln muss.
+
+Einer meiner Lehrer hatte sich in das japanische Theater verliebt. Er musste alles verkaufen, hinfliegen, auf einem Berg jahrelang eine Kampftechnik lernen, die Grundlage der Theaterform ist und ohne deren Beherrschung man gar nicht erst aufkreuzen braucht. 
