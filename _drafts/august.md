@@ -3,7 +3,7 @@ date: 2022-08-04 18:07:45 +0200
 title: August
 
 ---
-Man kann betrunken werden von diesen Nächten. Dem Geruch des Heus, der Frequenz, auf der die Grillen zirpen, von der Üppigkeit, mit der alles wächst, sicher ineinander verschlingt und verrankt. Daneben bin ich auch betrunken von der georgischen Musik, von den cineastischen Bildern Levan Akins und der Art, wie meine Großmutter den Namen der Hauptstadt aussprach, manchmal Tiflis und manchmal Tbilissi sagte: Ja, in Tbilissi haben wir gewohnt, eine Weile.  
+Man kann betrunken werden von diesen Nächten. Von der Frequenz, auf der die Grillen zirpen, der Üppigkeit, mit der alles wächst, sich ineinander verschlingt und verrankt. Daneben bin ich auch betrunken von der georgischen Musik, von den cineastischen Bildern Levan Akins und der Art, wie meine Großmutter den Namen der Hauptstadt aussprach, manchmal Tiflis und manchmal Tbilissi sagte: Ja, in Tbilissi haben wir gewohnt, eine Weile.  
 Warum sie da gewohnt haben, wie lang, freiwillig, unfreiwillig - das ist nicht mehr einfach zu klären. Es war ein solches Durcheinander.
 
 2019 waren auf einmal alle möglichen Freunde und Bekannte in Georgien. Alle sagten: Fahr hin. Es ist großartig.  
