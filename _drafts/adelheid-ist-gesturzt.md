@@ -10,3 +10,5 @@ Wenn sie mich im Garten sieht, ruft sie irgendwas herüber. Die Worte sind kompl
 Als ob ihr Herz platzt.
 
 Vor einigen Wochen ist sie gestürzt, Oberschenkelhalsbruch oder etwas ähnliches, das alten Menschen passiert. Seitdem stehen täglich fremde Autos vor ihrem Haus, es werden Körbe mit Essen hineingetragen und Informationen ausgetauscht über ihren Zustand. Manche der Helfer/Verwandten/Nachbarn/Kirchenfreunde bleiben über Nacht oder ein paar Tage, sie halten sich häufig in der Küche auf und rauchen abends auf Adelheids Balkon eine Zigarette. 
+
+Ich erzähle mir diese Geschichte, weil sie real ist und existiert. Neben dem ganzen Grauen, das auch auch real ist und existiert. 
