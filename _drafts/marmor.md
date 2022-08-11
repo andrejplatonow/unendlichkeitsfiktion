@@ -26,4 +26,7 @@ Eine Freundin war im Kloster und hat dieses Bild gemacht. Ich sehe sie sitzen in
 
 Immer will ich sie vermeiden, meine Ohnmacht. Trotzdem wird sie es sein, die mich in meine innerste Kammer führt.
 
-Und daneben ein ganz normaler Sommer. Ein Kofferraum voller Melonen. Grashüpfer in der hohlen Hand fangen. Ich kann nichts lesen oder lernen, weil zu jeder Tageszeit meine Sinne aufgespannt sind in die Natur hinein und selbst nachts beim Umdrehen in den Laken 
+Und daneben ein ganz normaler Sommer. Ein Kofferraum voll Melonen. Grashüpfer in der hohlen Hand fangen. Ich kann nichts lesen oder lernen, weil zu jeder Tageszeit meine Sinne aufgespannt sind in die Natur hinein und selbst nachts beim kurz Wachwerden und Umdrehen in den Laken die Vogellaute und Geräusche von im Wind gebogenen Bäumen mich wecken, wecken, wecken, als sei das alles nur für mich gemacht.
+
+  
+ 
