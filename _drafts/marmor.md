@@ -23,7 +23,9 @@ Ich glaube, dass wir Menschen uns gegenseitig retten können. Aber nicht jeder j
 
 ![](/uploads/kammer.jpg)
 
-Eine Freundin war im Kloster und hat das Bild gemacht. Ich sehe sie sitzen in dieser Kammer vor einer Kammer. Und vielleicht ist hinter ihr noch eine Kammer und sie musste viele durchschreiten, um fast bis in Innerste vorzudringen. Dann denke ich an Jesus, wie er seinen bevorstehenden Tod ahnt und sagt, er wird drei Tage und drei Nächte im Herzen der Erde sein.
+Eine Freundin war im Kloster und hat dieses Bild gemacht. Ich sehe sie sitzen in dieser Kammer vor einer Kammer. Und vielleicht ist hinter ihr noch eine Kammer und sie musste viele durchschreiten, um fast bis in Innerste vorzudringen. Dann denke ich an Jesus, wie er seinen bevorstehenden Tod ahnt und sagt, er wird drei Tage und drei Nächte im Herzen der Erde sein.
+
+Immer will ich sie vermeiden, meine Ohnmacht.
 
   
  
