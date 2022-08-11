@@ -16,8 +16,10 @@ Im Entlassungsdokument schrieb man ihm, er werde von der Produktion entfernt inf
 
 ![](/uploads/kiesel-gelbe-blume.jpg)
 
-Der kranke Freunde ist jetzt in Lebensgefahr. Ich gehe über die Felder und winde mich unter der Machtlosigkeit, niemanden auf dieser Welt retten zu können und es doch zu wollen. In meinen Knochen steckt ein robuster Größenwahn, der anspringt, wenn sich Gelegenheit bietet. Ich bin überzeugt, wenn ich mich anstrenge, finde ich einen Weg, ich finde ein Wort, eine Tat, einen Satz und der Freund wird bleiben und nicht so früh gehen. Er nüchtert aus, dieser mein Größenwahn, seit ein paar Jahren nüchtert er aus – vielleicht ist es nur noch ein halbstarker Wahn – aber er ist noch da und kämpft.   
+Der kranke Freunde ist jetzt in Lebensgefahr. Ich gehe über die Felder und winde mich unter der Machtlosigkeit, nichts zu können und es doch zu wollen. In meinen Knochen steckt ein robuster Größenwahn, der anspringt, wenn sich Gelegenheit bietet. Ich bin überzeugt, wenn ich mich anstrenge, finde ich einen Weg, ich finde ein Wort, eine Tat, einen Satz und der Freund wird bleiben und nicht so früh gehen. Er nüchtert aus, dieser mein Größenwahn, seit ein paar Jahren nüchtert er aus – vielleicht ist es nur noch ein halbstarker Wahn – aber er ist noch da und kämpft.   
 Ich glaube, dass wir Menschen uns gegenseitig retten können. Aber nicht jeder jeden. Und nicht oft. Und nicht umfassend. Wir können nur punktuell einen anderen retten. An einer Stelle auf dem Zeitstrang.
+
+Meine Mutter konnte ich nicht retten. Diese 
 
 ![](/uploads/kammer.jpg)
 
