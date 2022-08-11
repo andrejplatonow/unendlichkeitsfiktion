@@ -16,4 +16,6 @@ Im Entlassungsdokument schrieb man ihm, er werde von der Produktion entfernt inf
 
 ![](/uploads/kiesel-gelbe-blume.jpg)
 
-Der kranke Freund ist jetzt in Lebensgefahr. Ich gehe über die Felder und winde mich unter der Machtlosigkeit, niemanden auf dieser Welt retten zu können und es doch zu wollen. In meinen Knochen steckt ein robuster Größenwahn, der anspringt, wenn sich Gelegenheit bietet. Er nüchtert aus, seit ein paar Jahren, dieser Größenwahn - vielleicht ist es jetzt nur noch ein Halbstarkerwahn - aber er ist noch da und er kämpft.
+Der kranke Freund ist jetzt in Lebensgefahr. Ich gehe über die Felder und winde mich unter der Machtlosigkeit, niemanden auf dieser Welt retten zu können und es doch zu wollen. In meinen Knochen steckt ein robuster Größenwahn, der anspringt, wenn sich Gelegenheit bietet. Er nüchtert aus, seit ein paar Jahren, dieser Größenwahn - vielleicht ist es jetzt nur noch ein Halbstarkerwahn - aber er ist noch da und er kämpft. 
+
+Ich kann nichts tun. Ich kann nichts tun. Außer mich selbst zu retten, wo immer ich kann.
