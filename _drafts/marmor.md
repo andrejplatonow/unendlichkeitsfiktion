@@ -23,6 +23,6 @@ Eine Freundin war im Kloster und hat dieses Bild gemacht. Ich sehe sie sitzen in
 
 Immer will ich sie vermeiden, meine Ohnmacht. Trotzdem wird sie es sein, die mich in meine innerste Kammer führt.
 
-![](/uploads/rosa-stein.jpg)
+![](/uploads/sandalen-1.jpg)
 
 Und daneben Sommer. Ein Kofferraum voll Melonen. Grashüpfer in der hohlen Hand fangen. Nichts lesen oder lernen, weil zu jeder Tageszeit die Sinne in die Natur hinein aufgespannt sind und auch nachts beim kurz Wachwerden und Umdrehen in den Laken die Vogellaute und der Wind  mich wecken, wecken, wecken, rufen.
