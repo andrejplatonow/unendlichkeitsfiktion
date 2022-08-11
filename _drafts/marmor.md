@@ -1,6 +1,6 @@
 ---
 date: 2022-08-11T18:29:19.000+02:00
-title: M
+title: Bald
 
 ---
 Der Mond heute ist eine weißgraue Marmorscheibe. Ich stehe unter ihm und will seine Herkunft in mich hineinschlürfen.
@@ -9,10 +9,6 @@ Im letzten Winter habe ich die fiktionale Nasa-Serie "For all mankind" gesehen. 
 Die blauviolette Bergkette unter der Marmorscheibe. Das gemähte Heu, liegen gelassen zum Trocknen.
 
 Dann bekomme ich Bescheid, dass bereits Ende der Woche mein 'Ukraineeinsatz' in der Behörde beendet ist. Es geht alles sehr schnell. Danke, Blumen, eine Runde, um mich zu verabschieden von diesem Haus der eAkten und Geflohenen. Ich gehe zurück in meine Institution.
-
-'Im Entlassungsdokument schrieb man ihm, er werde von der Produktion entfernt infolge der wachsenden Kraftschwäche in ihm und seiner Nachdenklichkeit im allgemeinen Tempo der Arbeit.'
-
-\[Die Baugrube, Andrej Platonow\]
 
 ![](/uploads/kiesel-gelbe-blume.jpg)
 
@@ -26,7 +22,7 @@ Eine Freundin war im Kloster und hat dieses Bild gemacht. Ich sehe sie sitzen in
 
 Immer will ich sie vermeiden, meine Ohnmacht. Trotzdem wird sie es sein, die mich in meine innerste Kammer führt.
 
-Und daneben ein ganz normaler Sommer. Ein Kofferraum voll Melonen. Grashüpfer in der hohlen Hand fangen. Ich kann nichts lesen oder lernen, weil zu jeder Tageszeit meine Sinne aufgespannt sind in die Natur hinein und selbst nachts beim kurz Wachwerden und Umdrehen in den Laken die Vogellaute und Geräusche von im Wind gebogenen Bäumen mich wecken, wecken, wecken, als sei das alles nur für mich gemacht.
+Und daneben Sommer. Ein Kofferraum voll Melonen. Grashüpfer in der hohlen Hand fangen. Nichts lesen oder lernen, weil zu jeder Tageszeit die Sinne in die Natur hinein aufgespannt sind und selbst nachts beim kurz Wachwerden und Umdrehen in den Laken die Vogellaute und der Wind  mich wecken, wecken, wecken, rufen.
 
   
  
