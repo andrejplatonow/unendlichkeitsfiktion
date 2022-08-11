@@ -12,6 +12,6 @@ Dann bekomme ich Bescheid, dass bereits Ende der Woche mein "Ukraineeinsatz" in 
 
 Im Entlassungsdokument schrieb man ihm, er werde von der Produktion entfernt infolge der wachsenden Kraftschwäche in ihm und seiner Nachdenklichkeit im allgemeinen Tempo der Arbeit.
 
-\[Die Baugrube, Andrey Platonow\]
+\[Die Baugrube, Andrej Platonow\]
 
 ![](/uploads/kiesel-gelbe-blume.jpg)
