@@ -12,20 +12,17 @@ Dann bekomme ich Bescheid, dass bereits Ende der Woche mein 'Ukraineeinsatz' in 
 
 ![](/uploads/kiesel-gelbe-blume.jpg)
 
-Der kranke Freunde ist jetzt in Lebensgefahr. Ich gehe über die Felder und winde mich unter der Machtlosigkeit, nichts tun zu können. In meinen Knochen steckt ein robuster Größenwahn, der anspringt, wenn sich Gelegenheit bietet. Ich bin überzeugt, wenn ich mich anstrenge, finde ich einen Weg, ich finde ein Wort, eine Tat, einen Satz und der Freund wird bleiben und nicht so früh gehen.   
+Der kranke Freunde ist jetzt in Lebensgefahr. Ich gehe über die Felder und winde mich unter der Machtlosigkeit, nichts tun zu können. In meinen Knochen steckt ein robuster Größenwahn, der anspringt, wenn sich Gelegenheit bietet. Ich bin überzeugt, wenn ich mich anstrenge, finde ich einen Weg, ich finde ein Wort, eine Tat, einen Satz und der Freund wird bleiben und nicht so früh gehen.  
 Er nüchtert aus, dieser mein Größenwahn, seit ein paar Jahren nüchtert er aus. Er ist nur noch ein halbstarker Wahn – aber er ist noch da und kämpft.
 
 Ich glaube, dass wir Menschen uns gegenseitig retten können. Aber nicht jeder jeden. Und nicht oft. Und nicht umfassend. Vielleicht können wir punktuell einen anderen retten. An einer Stelle auf seinem Zeitstrang.
 
 ![](/uploads/kammer.jpg)
 
-Eine Freundin war im Kloster und hat dieses Bild gemacht. Ich sehe sie sitzen in dieser Kammer vor einer Kammer. Und möglicherweise ist hinter ihr noch eine Kammer und sie musste viele durchschreiten, um fast bis in Innerste vorzudringen. Dann denke ich an Jesus, wie er seinen bevorstehenden Tod ahnt und sagt, er wird drei Tage und drei Nächte im Herzen der Erde sein. 
+Eine Freundin war im Kloster und hat dieses Bild gemacht. Ich sehe sie sitzen in dieser Kammer vor einer Kammer. Und möglicherweise ist hinter ihr noch eine Kammer und sie musste viele durchschreiten, um fast bis in Innerste vorzudringen. Dann denke ich an Jesus, wie er seinen bevorstehenden Tod ahnt und sagt, er wird drei Tage und drei Nächte im Herzen der Erde sein.
 
 Immer will ich sie vermeiden, meine Ohnmacht. Trotzdem wird sie es sein, die mich in meine innerste Kammer führt.
 
-![](/uploads/sandalen-1.jpg)
+![](/uploads/rosa-stein.jpg)
 
-Und daneben Sommer. Ein Kofferraum voll Melonen. Grashüpfer in der hohlen Hand fangen. Nichts lesen oder lernen, weil zu jeder Tageszeit die Sinne in die Natur hinein aufgespannt sind und selbst nachts beim kurz Wachwerden und Umdrehen in den Laken die Vogellaute und der Wind  mich wecken, wecken, wecken, rufen.
-
-  
- 
+Und daneben Sommer. Ein Kofferraum voll Melonen. Grashüpfer in der hohlen Hand fangen. Nichts lesen oder lernen, weil zu jeder Tageszeit die Sinne in die Natur hinein aufgespannt sind und auch nachts beim kurz Wachwerden und Umdrehen in den Laken die Vogellaute und der Wind  mich wecken, wecken, wecken, rufen.
