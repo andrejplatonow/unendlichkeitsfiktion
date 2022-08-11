@@ -8,7 +8,7 @@ Der Mond heute ist eine weißgraue Marmorscheibe. Ich stehe unter ihm und will s
 Im letzten Winter habe ich die fiktionale Nasa-Serie "For all mankind" gesehen. Die zweite Staffel ist draußen, aber ich spare sie auf für die kalte Jahreszeit. Ich kann nicht drinnen sein und den Mond auf meinem Laptop anschauen, während er in echt draußen hängt und es Sommer ist und alles schreit und krümmt sich: Ja  
 Die blauviolette Bergkette unter der Marmorscheibe. Das gemähte Heu, liegen gelassen zum Trocknen.
 
-Dann bekomme ich Bescheid, dass bereits Ende der Woche mein 'Ukraineeinsatz' in der Behörde beendet ist. Es geht alles sehr schnell. Danke, Blumen, eine Runde, um mich zu verabschieden von diesem Haus der eAkten und Geflohenen. Ich gehe zurück in meine Institution.
+Am Montag bekomme ich Bescheid, dass bereits Ende der Woche mein 'Ukraineeinsatz' in der Behörde beendet ist. Es geht alles sehr schnell. Danke, Blumen, eine Runde, um mich zu verabschieden von diesem Haus der eAkten und Geflohenen. Ich gehe zurück in meine Institution.
 
 ![](/uploads/kiesel-gelbe-blume.jpg)
 
