@@ -1,5 +1,5 @@
 ---
-date: 2022-08-17T21:26:42.000+02:00
+date: 2022-08-17 19:26:42 +0200
 title: Tunk dein Brot in diese Schale
 
 ---
