@@ -1,9 +1,13 @@
 ---
-date: 2022-08-17 21:26:42 +0200
+date: 2022-08-17T21:26:42.000+02:00
 title: Tunk dein Brot in diese Schale
 
 ---
-Wir gehen bei Regen in die Berge. Es tropft vom Blätterdach und von unseren Haaren, es läuft in die Schuhe und den Rücken runter. Am Wasserfall sind wir kurz unschlüssig, bevor einleuchtet, dass es jetzt um Hingabe geht. Wir ziehen uns aus und springen rein. Es braucht diese verregneten Wanderungen, man muss sie manchmal machen, im Juli oder im August; sich einmal mittendrin befinden, aufweichen, aufquellen, keine Kontrolle haben, kein gutes Wetter. 
+![](/uploads/nass-2.jpg)
+
+Wir gehen bei Regen in die Berge. Es tropft vom Blätterdach und von unseren Haaren, es läuft in die Schuhe und den Rücken runter. Am Wasserfall sind wir kurz unschlüssig, bevor einleuchtet, dass es jetzt um Hingabe geht. Wir ziehen uns aus und springen rein. Es braucht diese verregneten Wanderungen, man muss sie manchmal machen, im Juli oder im August; sich einmal mittendrin befinden, aufweichen, aufquellen, keine Kontrolle haben, kein gutes Wetter.
+
+![](/uploads/nass-3.jpg)
 
 Und dann wird es doch sonnig. Es wird heiß und dampft, der Wald kippt ins Tropische, schwarze Salamander und Blindschleichen kommen raus, alles perlt und trocknet in dieser abartigen Wärme, die nichts verlangt und nur gibt.
 
