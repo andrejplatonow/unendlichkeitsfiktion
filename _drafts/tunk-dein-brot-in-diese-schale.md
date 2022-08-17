@@ -17,7 +17,6 @@ Ein Kind, das immer mit den Männern vorneweg läuft, verkündet: Wir sind die C
 
 Es ist ein guter Tag. Es fließt an diesem Tag.
 
-Man kann den Fluss nicht anschieben. Man kann ihn aber auch nicht aufhalten.  
-\[Gottlieb und viele andere Meister\]
+Man kann den Fluss nicht anschieben. Man kann ihn aber auch nicht aufhalten. \[Gottlieb und viele andere Meister\]
 
 Ich liebe dieses Kind und schaue ihm zu, wie es zwischen den Erwachsenen hin und her pendelt und aufmerksam verfolgt, wie wir sind. Das ist meine Gabe an diese Erde. Dass ich lieben kann, was mir nicht gehört. Und mitkriege, was passiert.
