@@ -6,7 +6,7 @@ title: I
 
 ![](/uploads/pxl_20220824_155407669.jpg)
 
-Ich liege an diesem Wasser, immer wieder. Ich betrachte die Weiden am Ufer, schaue die Steine an, zehntausende, hunderttausende Steine.
+Ich liege an diesem Wasser, immer wieder. Ich betrachte die Weiden am Ufer, die Steine im Kiesbett, zehntausend, hunderttausend Steine.
 
 Während ich nichts tue, nichts lese, nichts lerne, nichts spreche findet eine Verwandlungen statt.
 
