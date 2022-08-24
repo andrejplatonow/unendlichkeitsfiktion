@@ -14,7 +14,7 @@ Ich kann ihr noch keinen Namen geben. Ich bin nicht im Kopf und kann mich sprach
 
 ![](/uploads/pxl_20220824_155907983.jpg)
 
-Ich kann nur wiederholen, was an anderer Stelle ein anderer besser gesagt hat: Ich bin 3 Tage und Nächte im Herzen der Erde.
+Ich kann nur wiederholen, was an anderer Stelle ein anderer besser gesagt hat: Ich bin 3 Tage und Nächte im Herzen der Erde. 
 
 Ich weiß nicht, was ist, wenn ich wieder rauskomme. Wie ich dann bin.
 
