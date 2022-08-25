@@ -1,14 +1,22 @@
 ---
 date: 2022-08-24T22:34:05.000+02:00
-title: i
+title: Jeden Tag
 
 ---
 ![](/uploads/pxl_20220824_155407669.jpg)
 
-Mittagssonne, Abendsonne, grell, gelb, mild. Der träge Wind. Das kühle Wasser. Wie es seine Kälte behält und gespeist wird von kalten Orten; weit, aber nicht sehr weit von hier. Ich liege an diesem Wasser, immer wieder. Betrachte die Weiden am Ufer, die Steine im Kiesbett, zehntausend, hunderttausend Steine. Während ich nichts tue, nichts lese, nichts lerne, nichts spreche findet eine Verwandlungen statt. Ich kann ihr noch keinen Namen geben. Ich bin nicht im Kopf und kann mich sprachlich nur schwer verständigen.
+Mittagsonne, Abendsonne, grell, gelb, mild. Der träge Wind. Das kühle Wasser. Wie es seine Kälte behält und gespeist wird von kalten Orten; weit, aber nicht sehr weit von hier. Ich liege an diesem Wasser, immer wieder. Betrachte die Weiden am Ufer, die Steine im Kiesbett, zehntausend, hunderttausend Steine. Während ich nichts tue, nichts lese, nichts lerne, nichts spreche findet eine Verwandlungen statt. Ich kann ihr noch keinen Namen geben. Ich bin nicht im Kopf und kann mich sprachlich nur schwer verständigen.
 
 ![](/uploads/pxl_20220824_155907983.jpg)
 
-Ich bleibe wach, während dieser Umbau stattfindet. Ich weiß nicht, was ist, wenn er vorbei ist. Wie ich dann bin.
+Ich bleibe wach, während dieser Umbau stattfindet. Er war überfällig. Ich habe ihn zu lange aufgehalten. Ich weiß nicht, was ist, wenn er vorbei ist. Wie ich dann bin. Als was ich rauskomme.
 
 ![](/uploads/pxl_20220824_160950540.jpg)
+
+Parallel dazu bricht einiges auf und durch. Manchmal blättere ich in ein Buch rein, finde aber keinen Zugang, alle meine Zugänge sind belegt von mir selber. Ich bin das einzige Buch, für das aktuell Platz ist.
+
+Erstaunlich verlässlich zeigt sich daneben die Arbeit. Am Tag meiner Rückkehr in die Institution gibt es kleines Welcome back Onlinemeeting für mich, bei dem wir uns freundlich, introvertiert und etwas betreten (so wie wir durch die Bank alle sind) anlächelen, um dann möglichst bald zurückzukehren in unsere Dateien. 
+
+Ich bin so gottfroh über meine unaufdringlichen, schüchternen Kollegen.
+
+Eis der Woche: Zitronensorbet.
