@@ -23,6 +23,9 @@ plugins:
 author:
   bio: Blogroll
   links:
+  - label: Istrici
+    icon: ''
+    url: https://istrici.wordpress.com/
   - label: Au fil des mots
     icon: ''
     url: http://aufildesmots.biz/
