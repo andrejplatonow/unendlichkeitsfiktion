@@ -1,6 +1,6 @@
 ---
 date: 2022-08-31T18:26:14.000+02:00
-title: W
+title: Kleidung/Enthemmung/Gebäudeverlust
 
 ---
 Alle paar Jahre sagt Brad Pitt etwas, das mich nachhaltig prägt. Oder aufklärt über einen Sachverhalt, den ich bis dahin nicht dingfest machen konnte.
@@ -11,8 +11,8 @@ Seit diesem Sommer gehe ich häufig in einem langen wehenden Rock spazieren. Es 
 Aber jetzt denke ich: gönn dir.  
 Das hat Brad Pitt in mir bewirkt.
 
-Ich wohne in einer Gegend, wo Kinder alleine draußen spielen. Auf dem Feld, im Wald, auch wenn sie erst sechs oder sieben Jahre alt sind. In den Bollerwagen, die sie hinter sich herziehen, sitzen ihre Kaninchen, Katzen und Lämmer und werden mit Gras und Salzstangen gefüttert.  
-Diese Kinder nun haben mich und meinen Rock bemerkt. Sie sind fasziniert davon. Sie schauen mich an und schauen mir nach. Manche können nicht anders, als von ihren Bollerwagen herüberzurufen: So ein schöner Rock!
+Ich wohne in einer Gegend, in der Kinder alleine draußen spielen. Auf dem Feld und im Wald, auch wenn sie erst sechs oder sieben Jahre alt sind. In den Bollerwagen, die sie hinter sich herziehen, sitzen ihre Kaninchen, Katzen und Lämmer und werden mit Gras und Salzstangen gefüttert.  
+Diese Kinder nun haben mich und meinen Rock bemerkt. Sie sind fasziniert davon. Sie schauen mich an und schauen mir nach. Sie wissen nicht, was hier vor sich geht, aber suchen Gründe, sich mir zu nähern und ein Gespräch zu beginnen. Manche trauen sich nicht näher ran, können aber auch nicht anders, als von ihren Bollerwagen herüberzurufen: So ein schöner Rock!
 
 Ein anderes Mal wurde Brad Pitt zu seiner Vergangenheit in einer amerikanischen Kirche befragt. Was er von den Phänomenen halte, die dort den Gottesdienstbesuchern widerfuhren; das Lachen, Zittern, Weinen, die Spontantheilungen und Enthemmung. Ob er diese Erfahrungen im Rückblick für Gruppentherapie halte, für körpereigene Drogenräusche, schamanische Reisen oder als das tatsächliche Handeln einer übergeordneten Gottheit. Brad Pitt sagte, er könne auch heute nicht beurteilen, was die Menschen da erlebt hatten, ...I mean the people, I know they believe it. I know they're releasing something. God, we're complicated. We're complicated creatures.
 
