@@ -9,13 +9,13 @@ In der Institution sind zwei Paletten fremdsprachiger Bücher eingetroffen. Am D
 
 Mit Freunden an dem einen schrecklich aufgemotzten und uferverbauten See vorbei gefahren, um in das dahinter liegende abseitige Tal zu gelangen, wo eine kleine Bergkette mit teilverwilderten Aufstiegen zu einer unauffälligen Anhöhe führt. Dort im Gras gesessen. Geredet. Später Wasserschlacht.
 
-Wertstoffhof. Ähnlich irrealer Moment wie beim ersten Einkauf in den Supermarktfilialen hier. Vor allem die Leere, Weite, die Neutralgelauntheit und Kontaktfreudigkeit des Personals. Es ist eine Umdrehung meiner Erfahrung mit öffentlichem Raum der letzten 10 Jahre in München. Niemand schreit, dreht durch oder beschallt einen mit politischer Gesinnung und schlechter Musik.
+Wertstoffhof. Ähnlich irrealer Moment wie beim ersten Einkauf in den Supermarktfilialen hier. Vor allem die Leere, Weite, die Neutralgelauntheit und Kontaktfreudigkeit des Personals. Es ist eine Umkehrung meiner Erfahrung mit öffentlichem Raum der letzten 10 Jahre in München. Niemand schreit, dreht durch oder beschallt einen mit politischer Gesinnung und schlechter Musik.
 
 ![](/uploads/wertstoffhof.jpg)
 
-Daneben die Frage: Wo sind die psychisch Kranken hier? Wo sind die Instabilen, Gefährdeten, zu Grunde Gerichteten? Gibt es insgesamt weniger Gebrochenheit in dieser Gegend? Ist sie anders gedeckelt oder besser aufgefangen? Ist alles mehr heil? Drehen die Menschen in Großstädten nur ständig durch, weil sie zusätzlich zur individuellen Belastung auch konstant reizüberflutet werden?  
-  
-Zumindest ich werde normaler in diesem Umfeld. Es ist noch nicht lange her, dass ich 1-2 Nächte pro Woche gar nicht oder kaum schlief. Wach lag bis 4 oder 5 Uhr, total übersteuert. Aufgescheuert bis an den Rand der Aufnahmefähigkeit, trotz Atemübung, Yoga und dem ganzen anderen Kram. Ich war überzeugt, ich kann besser werden, ich kann mich optimieren, die Nachbarn ausblenden, den Verkehr ausblenden, die Hubschrauber, Straßenfeste, die Geschwindigkeit und Baustellen. Ich wollte so gern stadtfähig bleiben. 
+Daneben die Frage: Wo sind die psychisch Kranken hier? Wo sind die Instabilen, Gefährdeten, zu Grunde Gerichteten? Gibt es insgesamt weniger Gebrochenheit in dieser Gegend? Ist sie anders gedeckelt oder besser aufgefangen? Ist alles mehr heil? Drehen die Menschen in Großstädten nur ständig durch, weil sie zusätzlich zur individuellen Belastung auch konstant reizüberflutet werden?
+
+Zumindest ich werde normaler in diesem Umfeld. Es ist noch nicht lange her, dass ich 1-2 Nächte pro Woche gar nicht oder kaum schlief. Wach lag bis 4 oder 5 Uhr, total übersteuert. Aufgescheuert bis an den Rand der Aufnahmefähigkeit, trotz Atemübung, Yoga und dem ganzen anderen Kram. Ich war überzeugt, ich kann besser werden, ich kann mich optimieren, die Nachbarn ausblenden, den Verkehr ausblenden, die Hubschrauber, Straßenfeste, die Geschwindigkeit und Baustellen. Ich wollte so gern stadtfähig bleiben.
 
 Was hätte ich gemacht ohne meine relative finanzielle Stabilität, meine Hautfarbe und kulturelle Angepasstheit, die es mir erlauben, einen Gebrauchtwagen und Gartenmöbel anzuschaffen und mit offenen Armen von konservativen Vermietern zur Besichtigung ihrer kleinen renovierten Landhauswohnug eingeladen zu werden? Ich hätte die Nerven verloren. Wie die Kinder meiner Nachbarn in der damaligen Stadtwohnung, die jeden Tag stundenlang brüllten. Jeden Tag. Jeden Tag. 5 Jahre am Stück.
 
