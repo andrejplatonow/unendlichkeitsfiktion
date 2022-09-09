@@ -20,6 +20,6 @@ Ich wollte so gern stadtfähig bleiben.
 
 Was hätte ich gemacht ohne meine relative finanzielle Stabilität, meine Hautfarbe und kulturelle Angepasstheit, die es mir erlauben, einen Gebrauchtwagen und Gartenmöbel anzuschaffen und mit offenen Armen von konservativen Vermietern zur Besichtigung ihrer kleinen renovierten Landhauswohnug eingeladen zu werden? Ich hätte die Nerven verloren. Wie die Kinder meiner Nachbarn in der damaligen Stadtwohnung, die jeden Tag stundenlang brüllten. Jeden Tag. Jeden Tag. 5 Jahre am Stück.
 
-Je länger ich hier bin, desto normaler werde ich. Ich habe sogar wieder Lust auf Lautstärke. Ich tanze bei sich bietender Gelegenheit, ich drehe die Musik lauter, wen sie ohnehin schon laut ist, ich gehe vermeidbare Konflikte ein, provoziere Wasserschlachten, halse mir komplexe Aufgaben auf und will rangeln. Manchmal sage ich es mir, vor dem Einschlafen im Bett, immer noch etwas ungläubig: I'm back to my old self.
+Je länger ich hier bin, desto lebendiger werde ich. Ich habe sogar wieder Lust auf Lautstärke. Ich tanze bei sich bietender Gelegenheit, ich drehe die Musik lauter, wen sie ohnehin schon laut ist, ich gehe vermeidbare Konflikte ein, provoziere Wasserschlachten, halse mir komplexe Aufgaben auf und will rangeln. Manchmal sage ich es mir, vor dem Einschlafen im Bett, immer noch etwas ungläubig: I'm back to my old self.
 
 Und Sama' Abdulhadi. Ich mag sie sehr. Das nächste Mal wenn sie in der Stadt ist, werde ich auch mit ihr tanzen. [Everbody is like everybody \[Sama Abdulhadi\]](https://www.youtube.com/watch?v=tHd9h5LRBRM)
