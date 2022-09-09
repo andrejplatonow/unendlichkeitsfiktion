@@ -18,6 +18,8 @@ Daneben die Frage: Wo sind die psychisch Kranken hier? Wo sind die Instabilen, G
 Zumindest ich werde normaler in diesem Umfeld. Es ist noch nicht lange her, dass ich 1-2 Nächte pro Woche gar nicht oder kaum schlief. Wach lag bis 4 oder 5 Uhr, total übersteuert. Aufgescheuert bis an den Rand der Aufnahmefähigkeit, trotz Atemübung, Yoga und dem ganzen anderen Kram. Ich war überzeugt, ich kann besser werden. Ich kann mich optimieren, die Nachbarn ausblenden, den Verkehr ausblenden, die Hubschrauber, Straßenfeste, die Geschwindigkeit und Baustellen.  
 Ich wollte so gern stadtfähig bleiben. 
 
-Was hätte ich gemacht ohne meine relative finanzielle Stabilität, meine Hautfarbe und kulturelle Angepasstheit, die mir erlauben, einen Gebrauchtwagen und Gartenmöbel anzuschaffen und mit offenen Armen von konservativen Vermietern zur Besichtigung ihrer kleinen renovierten Landhauswohnug eingeladen zu werden?  
+Was hätte ich gemacht ohne meine relative finanzielle Stabilität, meine Hautfarbe und kulturelle Angepasstheit, die es mir erlauben, einen Gebrauchtwagen und Gartenmöbel anzuschaffen und mit offenen Armen von konservativen Vermietern zur Besichtigung ihrer kleinen renovierten Landhauswohnug eingeladen zu werden?  
+
+Ich hätte durchdrehen müssen, wie die Kinder der Nachbarn in der Stadtwohnung, die jeden Tag stundenlang brüllten. Jeden Tag. Jeden Tag. 
 
 Everbody is like everybody \[Sama Abdulhadi\]
