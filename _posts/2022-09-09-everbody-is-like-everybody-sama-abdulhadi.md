@@ -13,7 +13,7 @@ Wertstoffhof. Ähnlich irrealer Moment wie beim ersten Einkauf in den Supermarkt
 
 ![](/uploads/wertstoffhof.jpg)
 
-Daneben die Frage: Wo sind die psychisch Kranken hier? Wo sind die Instabilen, Gefährdeteten, zu Grunde Gerichteten? Gibt es insgesamt weniger Gebrochenheit in dieser Gegend? Ist sie anders gedeckelt oder besser aufgefangen? Ist alles mehr heil? Drehen die Menschen in Großstädten nur ständig durch, weil sie zusätzlich zur individuellen Belastung auch konstant reizüberflutet werden?  
+Daneben die Frage: Wo sind die psychisch Kranken hier? Wo sind die Instabilen, Gefährdeten, zu Grunde Gerichteten? Gibt es insgesamt weniger Gebrochenheit in dieser Gegend? Ist sie anders gedeckelt oder besser aufgefangen? Ist alles mehr heil? Drehen die Menschen in Großstädten nur ständig durch, weil sie zusätzlich zur individuellen Belastung auch konstant reizüberflutet werden?  
   
 Zumindest ich werde normaler in diesem Umfeld. Es ist noch nicht lange her, dass ich 1-2 Nächte pro Woche gar nicht oder kaum schlief. Wach lag bis 4 oder 5 Uhr, total übersteuert. Aufgescheuert bis an den Rand der Aufnahmefähigkeit, trotz Atemübung, Yoga und dem ganzen anderen Kram. Ich war überzeugt, ich kann besser werden. Ich kann mich optimieren, die Nachbarn ausblenden, den Verkehr ausblenden, die Hubschrauber, Straßenfeste, die Geschwindigkeit und Baustellen.  
 Ich wollte so gern stadtfähig bleiben. 
