@@ -9,7 +9,7 @@ In der Institution sind zwei Paletten fremdsprachiger Bücher eingetroffen. Am D
 
 Mit Freunden an dem einen schrecklich aufgemotzten und uferverbauten See vorbei gefahren, um in das dahinter liegende abseitige Tal zu gelangen, wo eine kleine Bergkette mit teilverwilderten Aufstiegen zu einer unauffälligen Anhöhe führt. Dort im Gras gesessen. Geredet. Später Wasserschlacht.
 
-Wertstoffhof. Ähnlich irrealer Moment wie beim ersten Einkauf in den Supermarktfilialen hier. Vor allem die Leere und Weite, die Neutralgelauntheit und Kontaktfreudigkeit des Personals. Es ist eine Umdrehung meiner Erfahrung mit öffentlichem Raum der letzten 10 Jahre in München. Niemand schreit, dreht durch oder beschallt einen mit politischer Gesinnung und schlechter Musik.
+Wertstoffhof. Ähnlich irrealer Moment wie beim ersten Einkauf in den Supermarktfilialen hier. Vor allem die Leere, Weite, die Neutralgelauntheit und Kontaktfreudigkeit des Personals. Es ist eine Umdrehung meiner Erfahrung mit öffentlichem Raum der letzten 10 Jahre in München. Niemand schreit, dreht durch oder beschallt einen mit politischer Gesinnung und schlechter Musik.
 
 ![](/uploads/wertstoffhof.jpg)
 
