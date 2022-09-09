@@ -9,6 +9,8 @@ In der Institution sind zwei Paletten fremdsprachiger Bücher eingetroffen. Am D
 
 Mit Freunden an dem einen schrecklich aufgemotzten und uferverbauten See vorbei gefahren, um in das dahinter liegende abseitige Tal zu gelangen, wo eine kleine Bergkette mit teilverwilderten Aufstiegen zu einer unauffälligen Anhöhe führt. Dort im Gras gesessen. Geredet. Später Wasserschlacht. 
 
-Wertstoffhof. Ähnlich irreale Erfahrung wie in den Supermarktfilialen hier. Vor allem die Leere, Weite, die Gutgelauntheit und Kontaktfreudigkeit des Personals. 
+Wertstoffhof. Ähnlich irreale Erfahrung wie in den Supermarktfilialen hier. Vor allem die Leere, Weite, Gutgelauntheit und Kontaktfreudigkeit des Personals. 
+
+Nach reiflicher Überlegung 5 kleine Weidensträucher bestellt. 
 
 Everbody is like everybody \[Sama Abdulhadi\]
