@@ -13,6 +13,9 @@ Wertstoffhof. Ähnlich irrealer Moment wie beim ersten Einkauf in den Supermarkt
 
 ![](/uploads/wertstoffhof.jpg)
 
-Nach reiflicher Überlegung 5 kleine Weidensträucher bestellt.
+Daneben die Frage: Wo sind die psychisch Kranken hier? Wo sind die Instabilen, Gefährdeteten, zu Grunde Gerichteten? Gibt es insgesamt einfach weniger Gebrochenheit in dieser Gegend? Ist alles mehr heil?  
+Drehen die Menschen in Großstädten nur ständig durch, weil sie zusätzlich zur individuellen Belastung auch konstant reizüberflutet werden?  
+  
+Zumindest ich werde normaler in diesem Umfeld. Es 
 
 Everbody is like everybody \[Sama Abdulhadi\]
