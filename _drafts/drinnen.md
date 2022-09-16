@@ -1,0 +1,22 @@
+---
+date: 2022-09-16 17:34:23 +0200
+title: Drinnen
+
+---
+Zwischendurch beansprucht eine Schreibaufgabe meine Aufmerksamkeit. Jetzt passt das schlechte Wetter wieder, denn ich muss mehrere Stunden Nachdenken und Notieren im Wechsel, was bei Sonnenschein eine Qual ist und nervt und nicht geht.
+
+Am Montag auf einen sehr beliebten Berg gegangen, Apfelschorle getrunken und wieder runter getrabt. Kurz vorm Gipfel das für mich neue Phänomen; der Fels von hunderttausenden Händen, die sich daran raufgezogen haben, abgerundet und speckig. Wie Heiligenstatuen an Pilgerstätten.
+
+Zurück im Garten pflanze ich Weiden und antizipiere das Geräusch, das ihre Blätter im Wind machen werden in 3-4 Jahren.  
+ Im Bauernhaus nebenan ist ein Mann ausgezogen, den ich für so was wie den Hoferben und eine Instanz im Dorf hielt und der mir noch vor meinem Einzug über den Zaun seinen Namen zurief und sagte: Wenn du mal eine Motorsäge brauchst, sag Bescheid.
+
+Es stellt sich heraus, dass er weder Hoferbe noch Instanz war, was eine Art kleine Erschütterung in dem eng gehäkelten Gefüge meines Bildes von dieser Nachbarschaft ist, die nicht so eng gehäkelt ist, wie ich das manchmal fantasiere.
+
+Was aber genauso bullerbümäßig ablief wie erwartet, war die Versorgung und Aufpäppelung der älteren Dame mit Oberschenkelhalsbruch, wohnhaft in dem gleichen Bauernhaus nebenan. Wochenlang rückten Verwandte, Bekannte und scheinbar von der Kirche abgestellte Helfer mit Fresskörben, Getränkekisten und Medikamenten ein, kochten, putzten, plauderten und rauchten anschließend eine Zigarette auf dem Balkon der Dame. Sie kann jetzt wieder gehen.
+
+Derweil gibt es für mich bei weiter prognostiziertem Starkregen und Dauerregen keine Ausrede mehr, mit dem Lernen anzufangen. Der Sommer kommt nicht zurück, auch wenn ich bockig die Tasche mit den Büchern ignoriere. Ich weiß, es wird mir wieder Spaß machen, sobald ich die erste Seite im Kopf habe, doch der von Mai bis August angemästete Schlendrian deutet auf die Wetterapp und sagt: Morgen, 12 Grad, trocken bis heiter, da könnte man doch noch mal baden gehen.
+
+  
+   
+   
+ 
