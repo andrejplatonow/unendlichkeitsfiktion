@@ -23,4 +23,4 @@ Der Herr der Ringe hat viel zu bieten, aber eindeutig zu wenig unterschiedliche 
 
 ![](/uploads/signal-2022-09-23-19-29-24-254-3_1.jpg)
 
-Es reicht dann als Märchen und Charakterstudie aber doch weit genug, um mich seit zwanzig Jahren zu trösten, wenn Freundschaften eine schwierige Kurve nehmen oder ich mich mit mir im Unbekannten wiederfinde.
+Es reicht dann als Märchen und Charakterstudie aber doch weit genug, um mich seit zwanzig Jahren zu trösten, wenn Freundschaften eine schwierige Kurve nehmen oder ich mich im Unbekannten wiederfinde.
