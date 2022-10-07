@@ -15,7 +15,7 @@ Wenn ich während dieser Zeit mit Freunden wandern gehe, verstricke ich alle in 
 
 ![](/uploads/pxl_20221007_103901219.jpg)
 
-In dieser Zeit kann ich dann auch meist 3-4 Sätze Elbisch sprechen und eines der Waldelbenlieder singen, ich kenne die Zweit- Dritt- und Viertnamen der wichtigsten Beteiligten und was ihre Vorfahren im Second Age getan haben.
+In dieser Zeit kann ich dann auch meist 3-4 Sätze Elbisch sprechen und eines der Waldelbenlieder singen, ich kenne die Zweit- Dritt- und Viertnamen der wichtigsten Beteiligten und weiß was ihre Vorfahren im Second Age getan haben. 
 
 ![](/uploads/signal-2022-10-07-17-18-15-745-5_1.jpg)
 
@@ -23,4 +23,4 @@ Der Herr der Ringe hat viel zu bieten, aber eindeutig zu wenig unterschiedliche 
 
 ![](/uploads/signal-2022-09-23-19-29-24-254-3_1.jpg)
 
-Es reicht dann als Märchen und Charakterstudie aber doch weit genug, um mich seit zwanzig Jahren zu trösten, wenn Freundschaften eine schwierige Kurve nehmen oder ich mich im Unbekannten wiederfinde.
+Es reicht dann als Märchen und Charakterstudie aber doch weit genug, um mich seit zwanzig Jahren zu trösten, wenn Freundschaften eine schwierige Kurve nehmen oder ich mich im Unbekannten wiederfinde. 
