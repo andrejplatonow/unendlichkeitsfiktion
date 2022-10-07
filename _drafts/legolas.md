@@ -15,11 +15,11 @@ Wenn ich während dieser Zeit mit Freunden wandern gehe, verstricke ich alle in 
 
 ![](/uploads/pxl_20221007_103901219.jpg)
 
-In dieser Zeit kann ich dann auch 3-4 Sätze Elbisch sprechen und eines der Waldelbenlieder singen, ich kenne die Zweit- Dritt- und Viertnamen der wichtigsten Beteiligten und was ihre Vorfahren im Second Age getan haben.
+In dieser Zeit kann ich dann auch meist 3-4 Sätze Elbisch sprechen und eines der Waldelbenlieder singen, ich kenne die Zweit- Dritt- und Viertnamen der wichtigsten Beteiligten und was ihre Vorfahren im Second Age getan haben.
 
 ![](/uploads/signal-2022-10-07-17-18-15-745-5_1.jpg)
 
-Der Herr der Ringe hat viel zu bieten, aber eindeutig zu wenig unterschiedliche Frauen, zu wenig nichtweiße Figuren und keinen einzigen Ork, der nach reiflicher Reflektion die Seiten wechselt. Was natürlich mit das Hauptproblem ist: die eindeutigen Seiten.
+Der Herr der Ringe hat viel zu bieten, aber eindeutig zu wenig unterschiedliche Frauen, zu wenig nichtweiße Figuren und keinen einzigen Ork, der nach reiflicher Reflektion die Seiten wechselt. Und natürlich das Hauptproblem: die eindeutigen Seiten.
 
 ![](/uploads/signal-2022-09-23-19-29-24-254-3_1.jpg)
 
