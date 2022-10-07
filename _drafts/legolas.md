@@ -11,16 +11,16 @@ Während dieser Jahreszeit muss ich häufig über die einzelnen Figuren der Tolk
 
 ![](/uploads/signal-2022-09-26-20-07-56-278-4_1.jpg)
 
-Wenn ich während dieser Zeit mit Freunden wandern gehe, verstricke ich alle in ein mehrstündiges Abwägen darüber, wer von uns Aragorn, Gandalf, Frodo, Eowyn, Gimli usw. ähnelt, was das für unser weiteres Leben bedeuten könnte, welche Leiden vor uns liegen, welche Wendungen und Aufgaben. 
+Wenn ich während dieser Zeit mit Freunden wandern gehe, verstricke ich alle in ein mehrstündiges Abwägen darüber, wer von uns Aragorn, Gandalf, Frodo, Eowyn, Gimli usw. ähnelt, was das für unser weiteres Leben bedeuten könnte, welche Leiden vor uns liegen, welche Wendungen und Aufgaben.
 
 ![](/uploads/pxl_20221007_103901219.jpg)
 
-In dieser Zeit kann ich dann auch meist 3-4 Sätze Elbisch sprechen und eines der Waldelbenlieder singen, ich kenne die Zweit- Dritt- und Viertnamen der wichtigsten Beteiligten und weiß was ihre Vorfahren im Second Age getan haben. 
+In dieser Zeit kann ich dann auch meist 3-4 Sätze Elbisch sprechen und eines der Waldelbenlieder singen, ich kenne die Zweit- Dritt- und Viertnamen der wichtigsten Beteiligten und weiß was ihre Vorfahren im Second Age getan haben.
 
 ![](/uploads/signal-2022-10-07-17-18-15-745-5_1.jpg)
 
-Der Herr der Ringe hat viel zu bieten, aber eindeutig zu wenig unterschiedliche Frauen, zu wenig nichtweiße Figuren und keinen einzigen Ork, der nach reiflicher Reflektion die Seiten wechselt. Und natürlich das Hauptproblem: die eindeutigen Seiten.
+Der Herr der Ringe hat viel zu bieten, aber eindeutig zu wenig unterschiedliche Frauen, zu wenig nichtweiße Figuren und keinen einzigen Ork, der nach reiflicher Reflektion die Seiten wechselt. Und natürlich das Hauptproblem: die eindeutigen Seiten. Insgesamt ist der Herr der Ringe so wenig gesellschaftskritisch, so furchtbar hierarchisch, pathetisch und fixiert auf Geburtsrechte, dass es einem immer wieder den Magen umdreht.
 
 ![](/uploads/signal-2022-09-23-19-29-24-254-3_1.jpg)
 
-Es reicht dann als Märchen und Charakterstudie aber doch weit genug, um mich seit zwanzig Jahren zu trösten, wenn Freundschaften eine schwierige Kurve nehmen oder ich mich im Unbekannten wiederfinde. 
+Es reicht dann als Märchen und Charakterstudie aber doch weit genug, um mich seit zwanzig Jahren zu trösten, wenn Freundschaften eine schwierige Kurve nehmen oder ich mich mit mir selber im Unbekannten wiederfinde. 
