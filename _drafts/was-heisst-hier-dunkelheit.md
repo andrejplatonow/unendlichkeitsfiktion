@@ -7,7 +7,7 @@ Nur diejenigen, die mehrmals gestorben sind, leben. Es führt kein Weg an meiner
 
 ![](/uploads/dunkelheit.jpg)
 
-Wenn ich nach vorne schaue, sehe ich, dass ich werde alles verlieren werde:  
+Wenn ich nach vorne schaue, sehe ich, dass ich alles verlieren werde:  
 \- alle meine Freunde  
 \- alle meine Fähigkeiten  
 \- jede Unabhängigkeit  
