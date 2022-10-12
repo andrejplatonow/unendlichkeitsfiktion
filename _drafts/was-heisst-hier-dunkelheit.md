@@ -20,4 +20,4 @@ Zuletzt die einzige Person (Gott), die er bis dahin immer in sich wahrnehmen kon
 
 Ich denke, dass diese Art von Verlust manchmal sein muss. Ich hasse diesen Gedanken, aber ich halte ihn für wahr. Er deckt sich mit dem, was mir auch in anderen Denkschulen, Religionen, Naturphänomenen wahr vorkommt. 
 
-In der christlichen Mythologie kommt Jesus nach 3 Tagen und Nächten von den Toten zurück. Er hat einen umgestalteten Körper und ist irgendwie anders. Er ist so anders, dass seine Freunde, als sie ihn treffen, nicht gleich kapieren, dass er es ist.
+In der christlichen Mythologie kommt Jesus nach 3 Tagen und Nächten von den Toten zurück. Er hat einen umgestalteten Körper und ist irgendwie anders. Er ist so anders, dass seine Freunde, als sie ihn treffen, nicht gleich kapieren, dass er es ist. Um sich auszuweisen, zeigt er ihnen seine Wunden. Die sind noch da. 
