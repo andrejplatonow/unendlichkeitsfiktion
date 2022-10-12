@@ -14,7 +14,7 @@ Wenn ich nach vorne schaue, sehe ich, dass ich werde alles verlieren werde:
 \- meinen Verstand  
 \- meinen Körper, den ich mittlerweile so liebe
 
-Und am Ende auch meine Spiritualität. Das leite ich daraus ab, dass Jesus, der vermutlich ziemlich spirituell war, in der Stunde vor seinem Tod sagt: Mein Gott, warum hast du mich verlassen.   
+Alles wird nach und nach weggehen, wegsein, sich auflösen. Am Ende auch meine Spiritualität. Das leite ich daraus ab, dass Jesus, der vermutlich ziemlich spirituell war, in der Stunde vor seinem Tod sagt: Mein Gott, warum hast du mich verlassen.   
 Auch er hat also, zum Schluss, alles, wirklich alles verloren. Es ist nichts von ihm übrig geblieben. Nachdem er so weit gekommen war, Menschen heilen zu können, indem er sie nur ansieht, berührt, mit ihnen spricht oder mit ihnen Wein trinkt, bricht alles wieder weg. Und zuletzt die einzige Person (Gott), die er bis dahin immer in sich wahrnehmen konnte. Man könnte von einem totalen Kollaps seiner Wahrnehmungsfähigkeit sprechen. Was nach stundenlanger Folter nicht verwunderlich wäre. 
 
 Ich denke, dass diese Art von Verlust manchmal sein muss. Ich hasse diesen Gedanken, aber ich halte ihn für wahr. Er deckt sich mit dem, was mir auch in anderen Denkschulen, Religionen, Naturphänomenen wahr vorkommt. 
