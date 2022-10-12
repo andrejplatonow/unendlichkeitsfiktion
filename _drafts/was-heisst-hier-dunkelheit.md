@@ -14,13 +14,13 @@ Wenn ich nach vorne schaue, sehe ich, dass ich alles verlieren werde:
 \- meinen Verstand  
 \- meinen Körper, den ich mittlerweile so liebe
 
-Alles wird nach und nach gehen, wegsein, sich auflösen. Am Ende auch meine Spiritualität. Das leite ich daraus ab, dass Jesus, der vermutlich ziemlich spirituell war, in der Stunde vor seinem Tod sagt: Mein Gott, warum hast du mich verlassen.   
+Mein inwendiger Reichtum wird zu irgendeinem Zeitpunkt gehen, wegsein, sich auflösen. Am Ende auch meine Spiritualität. Das leite ich daraus ab, dass Jesus, der vermutlich ziemlich spirituell war, in der Stunde vor seinem Tod sagt: Mein Gott, warum hast du mich verlassen.   
 Auch er hat also, zum Schluss, alles, wirklich alles verloren. Es ist nichts von ihm übrig geblieben. Nachdem er so weit gekommen war, Menschen heilen zu können, indem er sie nur ansieht, berührt, mit ihnen spricht oder mit ihnen Wein trinkt, bricht alles wieder weg. Und zuletzt die einzige Person (Gott), die er bis dahin immer in sich wahrnehmen konnte. Man könnte von einem totalen Kollaps seiner Wahrnehmungsfähigkeit sprechen. Was nach stundenlanger Folter nicht verwunderlich wäre. 
 
-Ich denke, dass diese Art von Verlust manchmal sein muss. Ich hasse diesen Gedanken, aber ich halte ihn für wahr. Er deckt sich mit dem, was mir auch in anderen Denkschulen, Religionen, Naturphänomenen wahr vorkommt. 
+Ich denke, dass diese Art von Verlust manchmal sein muss. Ich hasse diesen Gedanken, aber ich halte ihn für wahr. Er deckt sich mit dem, was mir auch in anderen Denkschulen, Religionen und Naturphänomenen wahr vorkommt. 
 
-In der christlichen Mythologie kommt Jesus nach 3 Tagen und Nächten von den Toten zurück. Er hat einen umgestalteten Körper und ist irgendwie anders. Er ist so anders, dass seine Freunde, als sie ihn treffen, nicht gleich kapieren, dass er es ist. So anders ist er. Um sich auszuweisen, zeigt er ihnen seine Wunden. Die sind noch da. Einer seiner Freunde legt den Finger direkt in die Wunde. Ich finde das recht intim. Von beiden Seiten. Sich nah zu sein, da wo es weh tut.
+In der christlichen Mythologie kommt Jesus nach 3 Tagen und Nächten von den Toten zurück. Er hat einen umgestalteten Körper und ist irgendwie anders. Er ist so anders, dass seine Freunde, als sie ihn treffen, nicht gleich kapieren, dass er es ist. So anders ist er. Um sich auszuweisen, zeigt er ihnen seine Wunden. Die sind noch da. Einer seiner Freunde legt den Finger direkt in die Wunde. Ich finde das recht intim. Von beiden Seiten. Sich nah zu sein, wo es weh tut.
 
-Ich glaube, darum geht es. Dass ich häufig sterbe und häufig anders werde. Reingehe in meine Dunkelheit, dort nach mir taste. Ob es 3 Tage und Nächte dauert oder 3 Jahre spielt keine Rolle. Die Zahl ist eine Metapher für eine magische Zeit, in der ich Dinge erlebe, von denen nur ich weiß und von denen ich später nicht berichten kann. 
+Ich glaube, darum geht es. Dass ich häufig sterbe und häufig anders werde. Reingehe in meine Dunkelheit, dort nach mir taste. Ob es 3 Tage und Nächte dauert oder 3 Jahre spielt keine Rolle. Die Zahl ist eine Metapher für eine magische Zeit, in der ich Dinge erlebe, von denen nur ich weiß. Und von denen ich später nicht berichten kann. 
 
 ![](/uploads/schwarzer-tanz_krahe.png)
