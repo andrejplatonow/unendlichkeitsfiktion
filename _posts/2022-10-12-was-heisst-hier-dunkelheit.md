@@ -1,5 +1,5 @@
 ---
-date: 2022-10-12T20:56:52.000+02:00
+date: 2022-10-12 18:56:52 +0200
 title: Was heißt hier Dunkelheit?
 
 ---
