@@ -10,6 +10,6 @@ Der Gedanke, in irgendetwas sehr gut zu sein, brigt das Versprechen, sich dann a
 Um mich in meinen vielen halbausgebauten und weit gestreuten Talenten zu genießen, muss ich daher gelegentlich den Wunsch nach Spitzenleistung verabschieden. Ungefähr alle 14 Tage.  
 Ich bin bereits einigermaßen routiniert darin, Mittelmäßigkeit zu feiern und könnte mir vorstellen, darin richtig gut zu werden. Dann wäre das mein Cello und ich hätte es doch noch zu etwas Außerordentlichem gebracht.
 
-Nachts stehen jetzt wieder häufig Tiere in dem kurvigen Wald auf der Straße und funkeln mit ihren Augen in mein Scheinwerferlicht. Füchse, Rehe, wieselartige Nager. Ich schleiche im 2. Gang an ihnen vorbei und sage: Ihr seid so schön! Ihr seid die eigentlichen Bewohner dieser Welt. Und wir sind nur Müll.
+Nachts stehen jetzt wieder häufig Tiere in dem kurvigen Wald auf der Straße und funkeln mit ihren Augen in mein Scheinwerferlicht. Füchse, Rehe und wieselartige Nager. Ich schleiche im 2. Gang an ihnen vorbei und sage: Ihr seid so schön! Ihr seid die eigentlichen Bewohner dieser Welt. Und wir sind nur Müll.
 
-Ein bisschen Menschenhass. Muss auch mal sei.
+Ein bisschen Menschenhass. Muss auch mal sein. Man kann nicht immer nur liebevolle Gefühle hegen.
