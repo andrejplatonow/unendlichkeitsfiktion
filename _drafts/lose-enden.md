@@ -12,4 +12,6 @@ Ich bin bereits einigermaßen routiniert darin, Mittelmäßigkeit zu feiern und 
 
 Nachts stehen jetzt wieder häufig Tiere in dem kurvigen Wald auf der Straße und funkeln mit ihren Augen in mein Scheinwerferlicht. Füchse, Rehe und wieselartige Nager. Ich schleiche im 2. Gang an ihnen vorbei und sage: Ihr seid so schön! Ihr seid die eigentlichen Bewohner dieser Welt. Und wir sind nur Müll.
 
-Ein bisschen Menschenhass. Muss auch mal sein. Man kann nicht immer nur liebevolle Gefühle hegen.
+Ein bisschen Menschenhass. Muss auch mal sein. Man kann nicht immer liebevolle Gefühle hegen.
+
+In der Institution läuft es unauffällig. Im zweiten Job läuft es auch. Am besten läuft es am Wochenende in den Bergen. 
