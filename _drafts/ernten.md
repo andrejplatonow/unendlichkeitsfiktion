@@ -9,4 +9,4 @@ In der Arbeit verläuft ein Meeting, das potentiell eskalieren könnte, komplett
 
 Eine kleine Holzkiste Äpfel liegt geerntet in der Kühle der Nacht vor der Tür. Als ich heute die Leiter an den Baum lehne, bleibt ein Nachbar am Zaun zur Straße hin stehen, so wie das viele Leute hier manchmal tun. Wir plauderen eine Weile über Sorten, ehe er seine im Juni verstorbene Frau erwähnt, die lange Krankheit und den Abendspaziergang jetzt zum Friedhof.  Der Nachbar hat wasserblaue Augen und ein offenes Gesicht, in seinem Garten wachsen sehr alte Bäume, seine Frau und er haben die Schneiderei im Ort betrieben, als es die Schneiderei noch gab. Ich habe den Mann vorher noch nie gesehen. Vermutlich war er inden letzten Jahren bis zu ihrem Tod häufig mit ihr drinnen. 
 
-Ein paar Tage bin ich sehr unruhig, 
+Zwei Tage bin ich sehr unruhig und verfalle einer dummen Gewohnheit, die sich immer einstellt, wenn ich unruhig bin. Dann unterstützt mich eine Freundin dabei, der Unruhe auf den Grund zu gehen. Im Anschluss ist es besser. Ich sitze auf dem Sofa und tue buchstäblich nichts. Es ist ein gutes Gefühl, nicht von mir selbst gejagt zu werden.
