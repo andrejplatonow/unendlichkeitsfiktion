@@ -11,5 +11,5 @@ Eine kleine Holzkiste Äpfel liegt geerntet vor der Tür. Als ich heute die Leit
 
 Zwei Tage bin ich sehr unruhig und verfalle einer dummen Gewohnheit, die sich immer einstellt, wenn ich unruhig bin. Dann unterstützt mich eine Freundin dabei, der Unruhe auf den Grund zu gehen. Im Anschluss ist es besser. Ich sitze auf dem Sofa und tue buchstäblich nichts. Es ist ein gutes Gefühl, nicht von mir selbst gejagt zu werden.
 
-Weil wir in den Bergen einige Fliegenpilze gesehen haben, erinnern wir uns an die Kalte Platte unserer Kindergeburtstage in den 80'ern.   
-Ei, Tomate, Mayonaise. Wer kommt auf sowas? Wie verspielt und gelangweilt muss man sein. Es führt kein Weg dran vorbei - der Fliegenpilz muss dieses Jahr aufs Silvesterbuffet.
+Weil wir in den Bergen Fliegenpilze sehen, erinnern wir uns an die Kalte Platte unserer Kindergeburtstage in den 80'ern.   
+Ei, Tomate, Mayonaise. Wer kommt auf sowas. Wie verspielt und gelangweilt muss man sein. Es führt kein Weg dran vorbei - der Fliegenpilz muss dieses Jahr aufs Silvesterbuffet.
