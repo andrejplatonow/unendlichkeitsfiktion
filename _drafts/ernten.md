@@ -3,7 +3,7 @@ date: 2022-10-28T18:54:39.000+02:00
 title: Fluss im November
 
 ---
-Am Morgen an der S-Bahnstation parkt ein Auto neben mir und zwei Frauen Mitte Fünfzig steigen aus. Die Beifahrerin eindeutig auf dem Absprung mit Koffer, Tasche und in reisetauglichem Outfit. Die Fahrerin im Pyjama-Onesie. Sie umarmen sich sehr lange, bevor die Reisetaugliche in die S-Bahn einsteigt und die andere ihr nachwinkt.
+![](/uploads/kiefern-herbst-2.jpg)
 
 In der Arbeit verläuft ein Meeting, das potentiell eskalieren könnte, komplett konstruktiv. Sowas passiert an unterschiedlichsten Orten in unterschiedlichsten Kontexten immer wieder. Es gibt viele Menschen, die besonnen handeln, obwohl ihnen einiges abverlangt wird.
 
@@ -13,6 +13,8 @@ Zwei Tage bin ich sehr unruhig und verfalle einer dummen Gewohnheit, die sich im
 
 In den Bergen sehen wir Fliegenpilze und erinnern uns an die Kalte Platte unserer Kindergeburtstage.  Ei, Tomate, Mayonaise. Wer kommt auf sowas. Wie gelangweilt muss man sein. Es führt kein Weg dran vorbei - der Fliegenpilz kommt dieses Jahr aufs Silvesterbuffet.
 
-Am Wochenende treffe ich viele Leute und werde regelrecht aufgeschwemmt von Begegnungen.  Ich mag diese Ausdehnung. Das Umfeld ist sicher genug, dass ich entspanne und verspielt werde, während gelgentlich Situationen um die Ecke kommen, die mich sehr fordern. Oder überfordern.
+Am Wochenende treffe ich viele Leute und werde regelrecht aufgeschwemmt von Begegnungen.  Ich mag diese Ausdehnung. Das Umfeld ist sicher genug, dass ich entspanne und verspielt werde, während gelgentlich Situationen um die Ecke kommen, die mich sehr fordern und überfordern.
 
-Am Morgen danach sitze ich am Fluss. Eine Stunde fließt er vorüber und hört nicht auf zu fließen. Jetzt am Ende des Sommers und mitten im Herbst weiß ich endlich, warum ich ständig hier her komme.
+Am Morgen danach sitze ich am Fluss. Eine Stunde fließt er vorüber und hört nicht auf zu fließen. 
+
+![](/uploads/fluss-grau-1.jpg)
