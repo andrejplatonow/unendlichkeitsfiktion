@@ -11,4 +11,10 @@ Ich höre, wie solche und ähnliche Sätze auch gesprochen werden, um persönlic
 
 Ich habe jetzt eine Wintersporthose, die warum genug ist, mir Lust auf fallende Temperaturen zu machen. Es war ein weiter Weg, der nicht aufgrund mangelnder Bereitschaft meinerseits lang wurde. Auch die jetz erstandene Hose ist optisch nicht ganz aus dem Skizirkus raus, hält sich aber zumindest zurück, nur am Bein reflektiert eine Naht und ein unnötiger Schriftzug auf Höhe des Oberschenkels könnte mich ärgern. Ich tue so, als sei er nicht da.
 
-Der letzte Tage im alten Arbeitsgebäude. Das brutalistische Treppenhaus, dessen Betonstille mich oft beruhigt hat, während ich in den vierten Stock rauf stieg, wird eingerissen und niemanden mehr durch sanftes Grau geleiten. Das Moos des Dachgartens in seiner Neonleuchtkraft glüht noch nach in meinen Gedanken. 
+![](/uploads/beton-2.jpg)
+
+Der letzte Tage im alten Arbeitsgebäude. Das brutalistische Treppenhaus, dessen Betonstille mich oft beruhigt hat, während ich in den vierten Stock rauf stieg, wird eingerissen und niemanden mehr durch sanftes Grau geleiten. Das Moos des Dachgartens in seiner Neonleuchtkraft glüht noch nach in meinen Gedanken.
+
+![](/uploads/dachgarten-2.jpg)
+
+![](/uploads/beton-1.jpg)
