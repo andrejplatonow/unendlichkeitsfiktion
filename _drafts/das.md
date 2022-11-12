@@ -3,6 +3,7 @@ date: 2022-11-11T17:06:39.000+01:00
 title: Elf
 
 ---
+
 Zwei Jahre habe ich die provisorische Homeofficesituation ausgesessen bis mir nun langsam klar wird, wie ich die zur Vermehrung neigende Technik feierabendkompatibel verräumen und am andern Tag mit wenigen Aufwand aufbauen kann. Es haben sich Geräte und gadgets angesammelt, aber kein Arbeitszimmer, in dem sie unauffällig auf mich warten könnten.
 
 Im Ofen brennt jetzt jeden Tag ein Feuer. In die Glut schauen und synchron zur Freude darüber an andere Städte und Menschen denken. Diese zufällige Sicherheit. Wäre man nur 2-3 Länder weiter oder 3-4 Jahrzehnte früher geboren, die eigene Belastung, mit der man sich aktuell trägt, schiene erstrebenswert und leicht im Vergleich.
@@ -13,8 +14,6 @@ Ich habe jetzt eine Wintersporthose, die warum genug ist, mir Lust auf fallende 
 
 ![](/uploads/beton-2.jpg)
 
-Der letzte Tage im alten Arbeitsgebäude. Das brutalistische Treppenhaus, dessen Betonstille mich oft beruhigt hat, während ich in den vierten Stock rauf stieg, wird eingerissen und niemanden mehr durch sanftes Grau geleiten. Das Moos des Dachgartens in seiner Neonleuchtkraft glüht noch nach in meinen Gedanken.
+Der letzte Tag im alten Arbeitsgebäude. Das brutalistische Treppenhaus, dessen Betonstille mich oft beruhigt hat, während ich in den vierten Stock rauf stieg, wird eingerissen und niemanden mehr durch sanftes Grau geleiten. Das Moos des Dachgartens in seiner Neonleuchtkraft glüht noch nach in meinen Gedanken. 
 
 ![](/uploads/dachgarten-2.jpg)
-
-![](/uploads/beton-1.jpg)
