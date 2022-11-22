@@ -16,3 +16,6 @@ Eugen Hartmann sagte die Degeneration dieses künftigen Stadtteils voraus, betei
 
 Der erste Künstler, der dann 1969 in dieser Entastungsstadt etwas tun durfte, buddelte einen vier Meter tiefen Trichter in die Erde und nannte ihn: Munich Depression.  
 Stieg man in den Trichter hinab, verschwanden die Gebäuderiegel aus dem Blickfeld und nur ein Stück Himmel blieb übrig. Der Künstler hatte sofort verstanden, wie man hier nur zurechtkommen konnte. Den Trichter gibt es nicht mehr. Er wurde überbaut.
+
+Zurück zu mir und meinen hundertfünfzig Kolleginnen und Kollegen.  
+Die Stimmung ist gut. Sie ist angekratzt, aber gut. Wir haben die Büros bezogen, wir haben den halbleeren Edeka gefunden, wir haben gefühlt, dass wir uns in einer nicht für Menschen gemachten Architektur befinden und das akzeptiert. In den neuen Aufenthaltsraum geht niemand freiwillig rein, aber jeder bleibt an der Teestation in meinem Raum ein paar Minuten stehen und wärmt sich auf. 
