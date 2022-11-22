@@ -5,7 +5,7 @@ title: Hier sind wir nun also
 ---
 Ich war mir der Verwöhnung bewusst, jahrelang in einem der schönsten Stadtviertel Münchens gearbeitet zu haben. Es bestand auch im Kolleginnenkreis kein Zweifel über die Verschlechterung, die ein Interimsquartier, wo auch immer es liegen mochte, zwangsläufig sein musste. Und es hat, in Gesprächen zum bevorstehenden Umzug niemand gejammert ohne den Hinweis auf das hohe Niveau der eigenen Jammmerei und die zeitgleich anderswo stattfindende Kriege und schonungslose Zerstörung von Ökosystemen und Verarmung von Menschen, die im Niedriglohnsektor arbeiten. Zu Letzeren habe ich bis vor gar nicht langer Zeit selbst gehört. Das ist der Kontext.
 
-Innerhalb dieses Kontexts fuhr heute Morgen eine U-Bahn in den Stadtteil ein, in dem hundertfünfzig Mitarbeiter und ich nun eine Weile (5-10 Jahre) in einer Büroscheibe verräumt sein werden. Ja, es heißt Büroscheibe. Und wenn man drin wohnt, heißt es Wohnscheibe. So steht es auf Wikipedia. Genauso wie Gebäudespangen, Streckenast und   
+Innerhalb dieses Kontexts fuhr heute Morgen eine U-Bahn in den Stadtteil ein, in dem hundertfünfzig Mitarbeiter und ich nun eine Weile (5-10 Jahre) in einer Büroscheibe verräumt sein werden. Ja, so heißt das wirklich: Büroscheibe. Und wenn man drin wohnt, heißt es Wohnscheibe. So steht es geschrieben. Genauso wie Gebäudespangen, Streckenast und Einkaufsriegel.  
   
 In der U-Bahn, die diesen Streckenabschnitt oberirdisch fährt, saß ich und sah aus dem Fenster.  Anstatt zu beschreiben, was in mir vorging, trage ich zusammen, wie es zu diesem Stadtbild kommen konnte.
 
