@@ -1,5 +1,5 @@
 ---
-date: 2022-11-22 18:34:24 +0100
+date: 2022-11-22 16:34:24 +0100
 title: Hier sind wir nun also
 
 ---
@@ -17,4 +17,4 @@ Der erste Künstler, der dann 1969 in dieser Entastungsstadt etwas tun durfte, b
 Stieg man in den Trichter hinab, verschwanden die Gebäuderiegel aus dem Blickfeld und nur ein Stück freier Himmel blieb übrig. Der Künstler hatte sofort verstanden, wie man hier nur zurechtkommen konnte. Den Trichter gibt es nicht mehr. Er wurde überbaut.
 
 Zurück zu mir und meinen hundertfünfzig Kolleginnen und Kollegen.  
-Die Stimmung ist gut. Sie ist geknickt, aber gut. Wir haben die Büros bezogen, wir haben den halbleeren Edeka gefunden, wir haben gefühlt, dass wir uns in einer nicht für Menschen gemachten Architektur befinden und das akzeptiert. In die neue Küche setzt niemand freiwillig einen Fuß rein, aber jeder bleibt an der Teestation in meinem kleinen Raum ein paar Minuten stehen und wärmt sich auf.  Einmal sind es 9 Menschen gleichzeitig, was eine große Summe ist, eine dichte Zahl, eine synaptisch interessante Atmosphäre, die wir erschaffen, während es sie draußen nicht gibt.
+Die Stimmung ist gut. Sie ist geknickt, aber gut. Wir haben die Büros bezogen, wir haben den halbleeren Edeka gefunden, wir haben gefühlt, dass wir uns in einer nicht für Menschen gemachten Architektur befinden und das akzeptiert. In die neue Küche setzt niemand freiwillig einen Fuß rein, aber jeder bleibt an dem Teetisch in meinem kleinen Raum ein paar Minuten stehen und wärmt sich auf.  Einmal sind es 9 Menschen gleichzeitig, was eine große Summe ist, eine dichte Zahl, eine synaptisch interessante Atmosphäre, die wir erschaffen, während es sie draußen nicht existiert.
