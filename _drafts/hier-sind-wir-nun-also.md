@@ -11,4 +11,9 @@ Der Wohnungsnot in den 60'er Jahren antwortete der Münchner Stadtrat mit dem Ba
 
 Dieser Entwurf wurde im Sinne einer wirtschaftlicheren Bauausführung erst zurückgeschnitten und dann zugunsten einer klaren Trennung von Wohn- Einkaufs - und Bürobereichen komplett aufgegeben. Bürgerhaus, Volkshochschule, Bibliothek, Sportplätze, Kino, Musikkonservatorium, Künstlerhof, Eislaufen, Hallenbad entfielen ersatzlos.
 
-Eugen Hartmann sagte die Degernation dieses künfitgen Stadtteils voraus, beteiligte Architekten distanzierten sich, noch während der ursprüngliche Entwurf abgeändert wurde, um den Prämissen einer autogerechten Verkehrsführung, gleichförmiger Gebäudeausrichtung und Ausdehnung der Wohnriegel zu entsprechen. Grundsteinlegung 1974.
+Eugen Hartmann sagte die Degernation dieses künfitgen Stadtteils voraus, beteiligte Architekten distanzierten sich, noch während der ursprüngliche Entwurf abgeändert wurde, um den Prämissen einer autogerechten Verkehrsführung, gleichförmiger Gebäudeausrichtung und Ausdehnung der Wohnriegel zu entsprechen. Es half nichts. Es fand sich einer, der das umsetzte. Grundsteinlegung 1974. 
+
+Deshalb fahre ich heute Morgen mit einer U-Bahn in diesen Stadtteil ein, in dem 55.000 Menschen leben, sehe mich um, gehe die Straßen entlang,  und fühle: nichts. 
+
+Der erste Künstler, der dann 1969 in dieser Entastungsstadt etwas tun durfte, buddelte einen vier Meter tiefen Trichter in die Erde und nannte ihn: Munich Depression.  
+Wenn man in den Trichter hinabstieg, verschwanden die Gebäuderiegel aus dem Blickfeld und nur ein Stück Himmel blieb übrig.
