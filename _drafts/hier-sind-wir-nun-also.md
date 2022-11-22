@@ -12,7 +12,7 @@ Der Wohnungsnot in den 60'er Jahren antwortete der Münchner Stadtrat mit dem Ba
 
 Dieser Entwurf wurde auf Wunsch der Stadt im Sinne einer wirtschaftlicheren Bauausführung erst zurückgeschnitten und dann zugunsten einer klaren Trennung von Wohn- Einkaufs - und Bürobereichen komplett aufgegeben. Bürgerhaus, Volkshochschule, Bibliothek, Sportplätze, Kino, Musikkonservatorium, Künstlerhof, Eislaufen, Hallenbad entfielen ersatzlos.
 
-Eugen Hartmann sagte die Degernation dieses künfitgen Stadtteils voraus, beteiligte Architekten distanzierten sich, noch während der ursprüngliche Entwurf abgeändert wurde, um den Prämissen einer autogerechten Verkehrsführung, gleichförmiger Gebäudeausrichtung und Ausdehnung der Wohnriegel zu entsprechen. Es half nichts. Es fand sich einer, der das umsetzte. 
+Eugen Hartmann sagte die Degeneration dieses künftigen Stadtteils voraus, beteiligte Architekten distanzierten sich, noch während der ursprüngliche Entwurf abgeändert wurde, um den Prämissen einer autogerechten Verkehrsführung, gleichförmiger Gebäudeausrichtung und Ausdehnung der Wohnriegel zu entsprechen. Es half nichts. Es fand sich einer, der das umsetzte. 
 
 Deshalb fahre ich heute Morgen mit einer U-Bahn in diesen Stadtteil ein, in dem 55.000 Menschen leben, sehe mich um, gehe die Straßen entlang,  und fühle: nichts. 
 
