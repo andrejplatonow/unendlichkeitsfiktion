@@ -14,7 +14,7 @@ Dieser Entwurf wurde auf Wunsch der Stadt im Sinne einer wirtschaftlicheren Baua
 
 Eugen Hartmann sagte die Degeneration dieses künftigen Stadtteils voraus, beteiligte Architekten distanzierten sich, noch während der ursprüngliche Entwurf abgeändert wurde, um den Prämissen einer autogerechten Verkehrsführung, gleichförmiger Gebäudeausrichtung und Ausdehnung der Wohnriegel zu entsprechen. Es half nichts. Es fand sich einer, der das umsetzte. 
 
-Deshalb fahre ich heute Morgen mit einer U-Bahn in diesen Stadtteil ein, in dem 55.000 Menschen leben, sehe mich um, gehe die Straßen entlang,  und fühle: nichts. 
-
 Der erste Künstler, der dann 1969 in dieser Entastungsstadt etwas tun durfte, buddelte einen vier Meter tiefen Trichter in die Erde und nannte ihn: Munich Depression.  
 Stieg man in den Trichter hinab, verschwanden die Gebäuderiegel aus dem Blickfeld und nur ein Stück Himmel blieb übrig. Der Künstler hatte sofort verstanden, wie man hier nur zurechtkommen konnte. Den Trichter gibt es nicht mehr. Er wurde überbaut.
+
+Deshalb fahre ich heute Morgen mit einer U-Bahn in diesen Stadtteil ein, in dem 55.000 Menschen leben, sehe mich um, gehe die Straßen entlang,  und fühle: nichts. 
