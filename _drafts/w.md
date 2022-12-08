@@ -1,6 +1,6 @@
 ---
 date: 2022-12-08T09:54:06.000+01:00
-title: W
+title: Advent
 
 ---
 Am Samstagabend sitze ich mit einigen Bekannten und Freunden in einem funktionalen Raum auf dem Boden und esse Pizza aus Kartons. Wir haben die Neonröhren ausgeschaltet, Lichterketten an das Flipchart und die Wanduhr gehängt, leise Musik angemacht und damit den Raum hinreichend weihnachtlich umgepolt. Es ist das Ende eines langen Tages und der Abend vor einem weiteren langen Tag und die meisten in der Runde sehen erschöpft aus, so wie man nur aussieht, wenn grundsätzliche Dinge einmal komplett auf links und im Anschluss wieder zurückgedreht wurden.  
@@ -11,5 +11,7 @@ Dann springt die Playlist zu Bowie, ich stehe auf, drehe lauter und tanze, währ
 Am Dienstag darauf sind die Pfützen auf der Straße eingefroren und spiegelglatt, ich fahre ins Büro, arbeite ein paar Stunden und friere in dem ausgekühlten Gebäude. Es ist eines dieser Gebäude, das prinzipiell irgendwann warm wird, in dem Finger und Füße aber durchgehend kalt bleiben. Die gefürchteten zitronengelben Institutsregale, die zwei Jahrzehnte in einem Magazin standen und nun mein Büro bestücken sollen, wurden angeliefert und stellen sich als ockerbraun heraus. Ich bin erleichtert. Zitronengelb ist eine so hässliche Farbe und sie hätte mich aufrichtig gestört. Gegen Mittag bemerke ich, den ganzen Tag noch keine anderen Mitarbeitenden angetroffen zu haben, die Türen zu den Büros sind zu, auf dem Gang nichts zu hörne. Ich gehe in die Teeküche, um mir einen Tee zu machen und sehe das:
 
 ![](/uploads/wichtel-1.jpg)
+
+![](/uploads/wichtel-2.jpg)
 
 So sind sie, meine Kollegen. Langsam zum Zorn, ausdauernd und regeltreu, gehemmt beim Smalltalk, fair und loyal, vergnügt wenn keiner hinsieht. Ich bin sicher, der oder diejenige, die das getan hat, kam heute extra um 5:30 Uhr rein, kauerte mit verdrehten Knien und Pinzette in der Hand eine Stunde vor diesem Altar der Detailverliebtheit und glomm vor kleinteilig organisierter Lust. Solche Menschen stürzen kein Regime. Ist ein Regime aber erst mal gestürzt, leisten sie hervorragende Aufbauarbei, archivieren die Vergangenheit und verschicken an alle den Link mit den Zugangsdaten.
