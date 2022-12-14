@@ -1,7 +1,9 @@
 <!-- start custom head snippets -->
 
-<!-- define CSP (Content Security Policy) -->
-`<META HTTP-EQUIV='Content-Security-Policy' CONTENT="default-src 'self' ; script-src 'self' ; style-src 'self' ; img-src 'self' ; media-src 'self' ; frame-src 'self';">`
+<!-- define Content Security Policy and Referrer Policy -->
+<META HTTP-EQUIV='Content-Security-Policy' CONTENT="default-src 'none'; script-src 'self'; style-src 'self'; img-src 'self'; media-src 'self'; frame-src 'self'; frame-ancestors 'none'; base-uri 'self'; form-action 'none';">
+
+<META HTTP-EQUIV='Referrer-Policy' CONTENT="no-referrer">
 
 <!-- insert favicons. use https://realfavicongenerator.net/ -->
 
