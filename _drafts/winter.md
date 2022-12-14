@@ -11,7 +11,7 @@ Ich war zwanzig, als ich mit Fieber im Bett lag und den Herrn der Ringe zum erst
 
 Es hat mich diesmal sehr mitgenommen; die für die Gefährten von Anfang bis zum Schluss anhaltenden Unsicherheit darüber, was zu tun ist und wie. Die ständig zu treffenden Entscheidungen, während es vorne und hinten an Informationen und Erfahrung mangelt. Die zunächst noch empfundene Stärke durch die Anwesenheit der Gruppe und das auf sich selbst zurück geworfen Sein, als diese Gruppe zerschellt. Zu unterschiedlichen Zeitpunkten ist jeder und jede einmal vollkommen allein und muss absteigen in das Bergwerk des eigenen Ichs.
 
-Es hat mich schier gekrümmt, wenn Eowyn davon berichtet, nichts zu kennen als Stagnation und Verfall. Und ihr im weiteren Verlauf tatsächlich nichts anderes geblüht hätte, wäre sie nicht für eine Weile in die Kleidung, Rüstung und den Namen einer anderen Gestalt gestiegen. Dass diese Verfremdung nötig war. Ihr niemand entgegenkam und es für sie keinen anderen Weg gab, als ohne Hilfe vorwärts zu gehen.
+Es hat mich schier gekrümmt, wenn Eowyn davon berichtet, nichts zu kennen als Stagnation und Verfall. Und wie ihr im weiteren Verlauf tatsächlich nichts anderes geblüht hätte, wäre sie nicht für eine Weile in die Kleidung, Rüstung und den Namen einer anderen Gestalt gestiegen. Dass diese Verfremdung nötig war. Ihr niemand entgegenkam und es für sie keinen anderen Weg gab, als ohne Hilfe vorwärts zu gehen.
 
 Der Moment als Gandalf von einem Unterhändler des Feindes damit konfrontiert wird, Frodo geopfert zu haben bei vollem Bewusstsein des wahrscheinlichen Ausgangs. Und Gandalf einbricht, weil es die Wahrheit ist. Die Filme stellen natürlich verkürzt dar, in den Büchern sind diese Passagen ausführlich erzählt.
 
