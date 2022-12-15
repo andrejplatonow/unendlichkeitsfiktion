@@ -11,7 +11,7 @@ Ich war zwanzig, als ich mit Fieber im Bett lag und die Trilogie zum ersten Mal 
 
 Es hat mich diesmal sehr mitgenommen; die für die Gefährten von Anfang bis zum Schluss anhaltenden Unsicherheit darüber, was zu tun ist und wie. Die permanent zu treffenden Entscheidungen, während es vorne und hinten an Informationen und Erfahrung mangelt. Die zunächst noch empfundene Stärke durch die Anwesenheit der Gruppe und das auf sich selbst zurück geworfen Sein, als diese Gruppe zerschellt. Zu unterschiedlichen Zeitpunkten ist jeder und jede einmal vollkommen allein und muss absteigen in das Bergwerk des eigenen Ichs.
 
-Es hat mich schier gekrümmt, wenn Eowyn davon berichtet, nichts zu kennen als Stagnation und Verfall. Ein zustand, der ihr im weiteren Verlauf tatsächlich geblüht hätte, wäre sie nicht für eine Weile in die Kleidung, Rüstung und den Namen einer anderen Gestalt gestiegen. Dass diese Verfremdung nötig war. Es für sie keinen anderen Weg gab.
+Es hat mich schier gekrümmt, wenn Eowyn davon berichtet, nichts zu kennen als Stagnation und Verfall. Ein Zustand, der ihr im weiteren Verlauf tatsächlich genauso geblüht hätte, wäre sie nicht für eine Weile in die Kleidung, Rüstung und den Namen einer anderen Gestalt gestiegen. Dass diese Verfremdung nötig war. Es für sie keinen anderen Weg gab.
 
 Der Moment als Gandalf von einem Unterhändler des Feindes damit konfrontiert wird, Frodo geopfert zu haben bei vollem Bewusstsein des wahrscheinlichen Ausgangs. Und Gandalf einbricht, weil es die Wahrheit ist. Die Filme stellen natürlich verkürzt dar, in den Büchern werden diese Passagen ausführlich erzählt.
 
