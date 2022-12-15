@@ -3,7 +3,9 @@ date: 2022-12-14T19:09:39.000+01:00
 title: Winter
 
 ---
-In etwa 4 Wochen beginnt die Paarungszeit der Füchse, ich habe am Montag einen auf den Schnee bedeckten Feldern herum turnen sehen. Die Anbahnung einer Fuchspartnerschaft ist kein leichtes Unterfangen. Bevor es zur Paarung kommt prüfen sich die beiden, indem sie miteinander rangeln, kämpfen, sich umschlingen und voreinander weglaufen. Dabei geben sie Laute von sich, die menschlichem Schreien nicht unähnlich sind. Ich war im letzten Januar einmal eine halbe Stunde Beobachterin, als zwei Füchse sich um den Weiher jagten, ineinander verknoteten und nacheinander schnappten. Man kann ihnen nur wünschen, dass der ganze Stress sich lohnt.
+In etwa 4 Wochen beginnt die Paarungszeit der Füchse, ich habe am Montag einen auf den Schnee bedeckten Feldern herumturnen sehen. Die Anbahnung einer Fuchspartnerschaft ist kein leichtes Unterfangen. Bevor es zur Paarung kommt prüfen sich die beiden, indem sie miteinander rangeln, kämpfen und voreinander weglaufen. Dabei geben sie Laute von sich, die menschlichem Schreien nicht unähnlich sind. Ich war im letzten Januar einmal eine halbe Stunde Beobachterin, als zwei Füchse sich um den Weiher jagten, ineinander verknoteten und nacheinander schnappten. Man kann ihnen nur wünschen, dass der ganze Stress sich lohnt.
+
+Stress ist für alle Menschen schlecht, besonders aber für Menschen mit einer Schizophrenieerkrankung. Eine Überstimulierung, Belastungssituation oder längere Schlaflosigkeit kann eine psychotische Episode auslösen, während derer Stimmen gehört werden oder Wahnvorstellungen in den Vordergrund drängen. 
 
 Ich bin am Ende des Herrn der Ringe angekommen und bewege mich auf die letzten Seiten zu. Die Handlung wurde für mich erst interessant, als die Beschaulichkeit des Shire, Auenland, das ständige Essen, Singen und Verwandtschaft Antreffen vorbei war, ich habe mehrere Kapitel davon übersprungen und stieg im Prinzip wieder ein, als Frodo dem Plüsch den Rücken kehrt, die Tür hinter sich zu macht und geht.
 
