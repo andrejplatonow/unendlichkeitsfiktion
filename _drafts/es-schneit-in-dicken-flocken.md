@@ -11,4 +11,4 @@ Bei einem Onlinemeeting zu den Vorschriften im neuen Gebäude weist die Abteilun
 
 Unterdessen habe ich es nicht geschafft vor dem Kälteienbruch den kranken Baum im Garten zu beschneiden. Eigentlich spricht alles dafür, ihn umzuhauen. Ich sag das nicht gern, aber es ist so: Dieser Baum bringt nichts und es braucht mindestens ein Peter Wohlleben'sches Verständnis von dem Wert eines Baumes, um ihm einen etwaigen unterirdischen Nutzen bei der Versorgung anderer Bäume zuzugestehen. Oberirdisch ist der Baum eine Katastrophe. Aber ich will nicht vorschnell handeln und lasse mich gern von Gandalf erziehen: Man weiß nie wofür ein anderes Wesen noch da ist. Es war ja auch zum Schluss Gollum, der den Ring endgültig entsorgt hat. Und nicht Frodo. Wir erinnern uns.
 
-Wenn ich das Geld zusammen habe, wird sich vielleicht ein professioneller Baumschneider das mal ansehen. Und dann schauen wir weiter. Es schneit immernoch.
+Wenn ich das Geld zusammen habe, wird sich vielleicht ein professioneller Baumschneider das mal ansehen. Und dann schauen wir weiter. Es schneit immernoch. Es schneit den ganzen Tag. 
