@@ -3,7 +3,7 @@ date: 2022-12-14T19:09:39.000+01:00
 title: Winter
 
 ---
-In etwa 4 Wochen beginnt die Paarungszeit der Füchse, ich habe am Montag einen von ihnen auf den Schnee bedeckten Feldern herumturnen sehen. Die Anbahnung einer Fuchspartnerschaft ist kein leichtes Unterfangen. Bevor es zur Paarung kommt prüfen sich die beiden, indem sie miteinander kämpfen, sich zärtlich umschlingen und voreinander weglaufen. Dabei geben sie Laute von sich, die menschlichem Schreien nicht unähnlich sind. Ich war im letzten Januar einmal eine halbe Stunde Beobachterin, als zwei Füchse sich um den Weiher jagten, ineinander verknoteten und nacheinander schnappten. Man kann ihnen nur wünschen, dass der ganze Stress sich lohnt.
+In etwa vier Wochen beginnt die Paarungszeit der Füchse, ich habe am Montag einen von ihnen auf den Schnee bedeckten Feldern herumturnen sehen. Die Anbahnung einer Fuchspartnerschaft ist kein leichtes Unterfangen. Bevor es zur Paarung kommt prüfen sich die beiden, indem sie miteinander kämpfen, sich zärtlich umschlingen und voreinander weglaufen. Dabei geben sie Laute von sich, die menschlichem Schreien nicht unähnlich sind. Ich war im letzten Januar einmal eine halbe Stunde Beobachterin, als zwei Füchse sich um den Weiher jagten, ineinander verknoteten und nacheinander schnappten. Man kann ihnen nur wünschen, dass der ganze Stress sich lohnt.
 
 Gestern Abend bin ich am Ende des Herrn der Ringe angekommen und bewege mich auf die letzten Seiten zu. Die Handlung wurde für mich erst interessant, als die Beschaulichkeit des Shire, das ständige Essen, Singen und Verwandtschaft Antreffen vorbei war, ich habe mehrere Kapitel davon übersprungen und stieg wieder ein, als Frodo dem Auenlandplüsch den Rücken kehrt, die Tür hinter sich zu macht und geht.
 
