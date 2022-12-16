@@ -7,7 +7,7 @@ markdown: kramdown
 remote_theme: mmistakes/minimal-mistakes
 minimal_mistakes_skin: custom
 permalink: "/:categories/:title/"
-paginate: "10"
+paginate: "20"
 paginate_path: "/page:num/"
 timezone: DE
 locale: de-DE
