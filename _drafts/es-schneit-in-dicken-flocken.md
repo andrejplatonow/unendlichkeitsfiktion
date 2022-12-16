@@ -5,7 +5,7 @@ title: Weiterhin Winter
 ---
 Es schneit in dicken Flocken. Beim morgendlichen Vorhangzurückziehen stellen sich tschechische Märchenfilmimpulse ein. Kurz lockt der Gedanke mit offenen Haaren und nichts als einer Schafwollweste überm Leinenkleid in den Schnee zu rennen, ehe beim Öffnen des Fensters dieser Gedanke im Keim erfriert. Diese Wochen sind nur mit Outdoorkleidung zu bewältigen. Outdoorkleidung der Sorte, die mehr mit Astronautenanzügen als mit Impulsen gemein hat.
 
-Wenn ich in Sozialen Netzwerken Fotos sehe von Menschen, die vor winterlich anmutender Landschaft in knöchelfreien Jeans und lose um sich geschlungenen Schals Winter-coziness ablichten, weiß ich, dass bei denen nicht wirklich Winter ist. Dass diese Leute gerade einen etwas kälteren Tag in Texas erleben oder eine sachte Schneewehe in Südfrankreich, die am nächsten Morgen weggetaut sein wird.
+Wenn ich in Sozialen Netzwerken Fotos sehe von Menschen, die vor winterlich anmutender Landschaft in knöchelfreien Jeans und lose um sich geschlungenen Schals Winter-coziness ablichten, weiß ich, dass bei denen nicht wirklich Winter ist. Dass diese Leute gerade einen etwas kälteren Tag in Texas erleben oder eine sachte Schneewehe in Südfrankreich.
 
 Wenn hier Winter ist, geht nicht mehr viel. Tagsüber ist das anstrengend, weil man ja doch manchmal einkaufen oder zu einer S-Bahnstation fahren muss und dabei alles mitnimmt: Schneegestöber, Glatteis, kaum Sicht eingefrorene Schlösser, am Holzboden festgefrorene Stiefel. Dafür sind die Nächte sehr schön. Still und zugedeckt von dieser unendlichen weißen Masse. Die Kapelle auf dem Feld unter einer orthodoxen Schneelast, noch entrückter als sonst.
 
