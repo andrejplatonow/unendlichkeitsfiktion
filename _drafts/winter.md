@@ -13,7 +13,7 @@ Es hat mich diesmal sehr mitgenommen; die für die Gefährten von Anfang bis zum
 
 Es hat mich schier gekrümmt, wenn Eowyn davon berichtet, nichts zu kennen als Stagnation und Verfall. Ein Zustand, der sie im weiteren Verlauf wohl tatsächlich gefällt hätte, wäre sie nicht für eine Weile in die Kleidung, Rüstung und den Namen einer anderen Gestalt gestiegen. Dass diese Verfremdung nötig war und es für sie keinen anderen Weg gab.
 
-Der Moment als Gandalf von einem Unterhändler des Feindes damit konfrontiert wird, Frodo geopfert zu haben bei vollem Bewusstsein des wahrscheinlichen Ausgangs. Und Gandalf einbricht, weil es die Wahrheit ist. Die Filme stellen natürlich verkürzt dar, in den Büchern werden diese Passagen ausführlich erzählt.
+Der Moment als Gandalf damit konfrontiert wird, Frodo geopfert zu haben bei vollem Bewusstsein des wahrscheinlichen Ausgangs. Und Gandalf einbricht, weil es die Wahrheit ist. Die Filme stellen natürlich verkürzt dar, in den Büchern werden diese Passagen ausführlich erzählt.
 
 Wie überhaupt alle Beteiligten konstant in ihren Gedanken Hin- und Herstolpern im Versuch, privates Glück zu konservieren bei fortschreitender Erkenntnis der Unmöglichkeit eines privaten Glücks im globalen Unglück. Wie daneben aber dennoch die Stunden von Freundschaft und Schönheit aufgenommen werden, nicht verschleudert. Und dass es, auch wenn die Bücher von einem Jahr des Krieges berichten, um Erhaltung geht und Verbindung. Letztlich um eben das Singen, Essen und eigene Kräfte Aufbieten in einem Gefüge, dessen Ausmaß man nicht überschauen kann.
 
