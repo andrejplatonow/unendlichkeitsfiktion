@@ -21,44 +21,7 @@ plugins:
 - jemoji
 - jekyll-include-cache
 author:
-  bio: Blogroll
-  links:
-  - label: Au fil des mots
-    icon: ''
-    url: http://aufildesmots.biz/
-  - label: Buddenbohm
-    icon: ''
-    url: https://www.buddenbohm-und-soehne.de/
-  - label: Goncourt
-    icon: ''
-    url: http://goncourt.net/Blog/
-  - label: Hotel
-    icon: ''
-    url: http://hotelmama.it/
-  - label: Istrici
-    icon: ''
-    url: https://istrici.wordpress.com/
-  - label: Kraulquappe
-    icon: ''
-    url: https://kraulquappe.com/
-  - label: Kreuzberg
-    icon: ''
-    url: https://kreuzbergsuedost.wordpress.com/
-  - label: Landleben
-    icon: ''
-    url: https://landlebenblog.org/blog/
-  - label: Mequito
-    icon: ''
-    url: http://mequito.org/
-  - label: Ricarda Kiel
-    icon: ''
-    url: https://www.ricardakiel.de/hier-ist-etwas-ein-brief/
-  - label: Wald und Höhle
-    icon: ''
-    url: https://waldundhoehle.wordpress.com/
-  - label: Wieselblog
-    icon: ''
-    url: https://wieselblog.wordpress.com/
+  name: "Admin"
 footer:
   links: []
 atom_feed:
@@ -69,7 +32,7 @@ defaults:
     type: posts
   values:
     layout: single
-    author_profile: true
+    author_profile: false
     sidebar:
       nav: "blogroll"
     comments: true
