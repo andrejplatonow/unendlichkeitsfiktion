@@ -59,13 +59,6 @@ author:
   - label: Wieselblog
     icon: ''
     url: https://wieselblog.wordpress.com/
-sidebar:
-  - title: "Title"
-    image: http://placehold.it/350x250
-    image_alt: "image"
-    text: "Some text here."
-  - title: "Another Title"
-    text: "More text here."
 footer:
   links: []
 atom_feed:
@@ -77,6 +70,8 @@ defaults:
   values:
     layout: single
     author_profile: true
+    sidebar:
+      nav: "blogroll"
     comments: true
     read_time: false
     show_date: true
@@ -91,6 +86,8 @@ defaults:
   values:
     layout: single
     author_profile: false
+    sidebar:
+      nav: "blogroll"    
     comments: false
     read_time: false
     show_date: false
