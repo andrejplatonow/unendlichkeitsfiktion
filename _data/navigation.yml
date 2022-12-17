@@ -1,3 +1,30 @@
 main:
   - title: "Posts"
     url: /posts/
+blogroll:
+  - title: Blogroll
+    children:
+      - title: "Au fil des mots"
+        url: http://aufildesmots.biz/
+      - title: "Buddenbohm"
+        url: https://www.buddenbohm-und-soehne.de/
+      - title: "Goncourt"
+        url: http://goncourt.net/Blog/
+      - title: "Hotel"
+        url: http://hotelmama.it/
+      - title: "Istrici"
+        url: https://istrici.wordpress.com/
+      - title: "Kraulquappe"
+        url: https://kraulquappe.com/
+      - title: "Kreuzberg"
+        url: https://kreuzbergsuedost.wordpress.com/
+      - title: "Landleben"
+        url: https://landlebenblog.org/blog/
+      - title: "Mequito"
+        url: http://mequito.org/
+      - title: "Ricarda Kiel"
+        url: https://www.ricardakiel.de/hier-ist-etwas-ein-brief/
+      - title: "Wald und Höhle"
+        url: https://waldundhoehle.wordpress.com/
+      - title: "Wieselblog"
+        url: https://wieselblog.wordpress.com/
