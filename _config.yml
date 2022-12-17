@@ -22,7 +22,6 @@ plugins:
 - jekyll-include-cache
 author:
   name: "Admin"
-author_profile: false
 footer:
   links: []
 atom_feed:
