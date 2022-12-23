@@ -14,3 +14,5 @@ Den Mondmeeren wurden Namen gegeben. Sie heißen Meer der Kälte, Meer der Gefah
 Auf dem Mond gibt es auch Erhebungen, flach aufgwölbte Rücken, die Berge genannt werden und maxmimal 100 Meter hoch sind. Die Berge tragen ebenfalls Namen, meist den eines irdischen Gebirges oder einer Person. Sie heißen also zum Beispiel Karpaten, Mont Blanc, Berge des ewigen Lichts oder auch einfach mal Dieter. 
 
 Ich glaube für Mondbewohner ist Dieter der Gipfel, den man gut bei gleichgültiger Laune und mäßiger Kondition an einem Montag im Februar machen kann. Wenn sonst nichts ist. 
+
+Am Tag vor Weihnachten gehe ich in den Wald. Die Waldarbeiter, die hier im Winter Nadelbäume fällen, lassen immer einen großen Haufen Zweige liegen. Direkt an der ersten Weggabelung. Ich weiß nicht, ob das eine Art Serviceleistung für das Dorf sein soll oder Zufall ist. Jedenfalls gehe ich mit einem Arm voll Zweige nach Hause und binde sie zusammen. Der Zweighaufen an der Weggabelung im Wald ist so groß - es könnten drei Dutzend Kranzbinde-Workshops 
