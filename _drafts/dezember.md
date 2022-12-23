@@ -9,4 +9,4 @@ Die dunklen Flecken des Mondes werden Mondmeere genannt, weil man sie ursprüngl
 
 Ich kann nicht genug betonen, wie wichtig mir Fdie ähigkeit eines Planeten, Steins, Tiers, Menschen ist, zu einer Zeit seiner Existenz flüssig und später fest und vielleicht noch später wieder flüssig oder etwas anderes zu sein. Die Möglichkeit unserer Körper und Gefühle vom Moment der Zeugung oder Entstehung an viele gewisse und ungewisse Stadien zu durchlaufen, die nicht abgeschlossene Umgestaltung, selbst wenn für 1 Milliarde Jahre mal Ruhe ist.
 
-Den Mondmeeren wurden Namen gegeben. Sie heißen Meer der Kälte, Meer der Gefahren, Meer der Begabung, Meer der Fruchtbarkeit oder Meer der Heiterkeit. Die meisten Namen stammen von dem Astronom Giovanni Battista Riccioli, der 1651 eine Karte der Flecken anlegte.
+Den Mondmeeren wurden Namen gegeben. Sie heißen Meer der Kälte, Meer der Gefahren, Schlangenmeer, Meer der Begabung, Meer der Fruchtbarkeit oder Meer der Heiterkeit. Die meisten Namen stammen von dem Astronom Giovanni Battista Riccioli, der 1651 eine Karte der dunklen Mondflecken anlegte.
