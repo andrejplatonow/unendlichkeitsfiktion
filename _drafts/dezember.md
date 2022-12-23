@@ -10,7 +10,7 @@ Im Kurs sind fast alle krank oder verhindert, daher tanzen wir zu dritt; meine L
 
 Die dunklen Flecken des Mondes werden Mondmeere genannt, weil man sie ursprünglich für Wasseransammlungen hielt. Was für damalige Astronomen wie Ozeane aussah, sind Tiefebenen, Becken und Senken, oft rund, in denen erstarrte Lavadecken liegen. Entstanden sind sie vermutlich durch Einschläge, als der Mond noch jung und sein Mantel flüssig war.
 
-Ich kann nicht genug betonen, wie wichtig mir die Fähigkeit eines Planeten, Steins, Tiers, Menschen ist, zu einer Zeit seiner Existenz flüssig und später fest und vielleicht noch später wieder flüssig oder etwas anderes zu sein. Die Möglichkeit unserer Körper und Gefühle vom Moment der Zeugung oder Entstehung an, viele gewisse und ungewisse Stadien zu durchlaufen. Die nicht abgeschlossene Umgestaltung, selbst wenn dazwischen für 1 Milliarde Jahre mal Ruhe ist.
+Ich kann nicht genug betonen, wie  mir die Fähigkeit eines Planeten, Steins, Tiers, Menschen ist, zu einer Zeit seiner Existenz flüssig und später fest, vielleicht noch später wieder flüssig oder etwas anderes zu sein. Die Möglichkeit irdischer und außerirdischer Körper vom Moment der Zeugung oder Entstehung an, viele gewisse und ungewisse Stadien zu durchlaufen. Die nicht abgeschlossene Umgestaltung, selbst wenn dazwischen für 1 Milliarde Jahre mal Ruhe ist.
 
 Den Mondmeeren wurden Namen gegeben. Sie heißen Meer der Kälte, Meer der Gefahren, Schlangenmeer, Meer der Begabung, Meer der Fruchtbarkeit oder Meer der Heiterkeit. Die meisten Namen stammen von dem Astronom Giovanni Battista Riccioli, der 1651 eine Karte der dunklen Mondflecken anlegte.
 
