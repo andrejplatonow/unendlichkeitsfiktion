@@ -1,10 +1,10 @@
 ---
-date: 2022-12-23 18:30:32 +0100
+date: 2022-12-23T18:30:32.000+01:00
 title: Dezember
 
 ---
 ![](/uploads/eisbaum.jpg)  
-Im Kurs sind fast alle krank oder verhindert, daher tanzen wir zu dritt; meine Lehrerin, eine andere Frau und ich. Wir sind vertraut miteinander und mit den Rhythmen des taditionellen ägyptischen Tanzes. Daher sprechen wir kaum und die Lehrerin gibt keine Hinweise. Wir folgen den eigenen Bewegungen, lose zusammengehalten von Schritten, die Menschen vor über hundert Jahren in Nordafrika, dem arabischen Raum, gegangen sind, um sich fortzubewegen, zu feiern, einen Anfang zu machen, ein Ende.
+Im Kurs sind fast alle krank oder verhindert, daher tanzen wir zu dritt; meine Lehrerin, eine andere Frau und ich. Wir sind vertraut miteinander und vertraut mit den Rhythmen des taditionellen ägyptischen Tanzes. Daher sprechen wir kaum und die Lehrerin gibt keine Hinweise. Wir geben den eigenen Bewegungen nach, lose zusammengehalten von Schrittfolgen, die Menschen vor über hundert Jahren in Nordafrika, dem arabischen Raum, gegangen sind, um sich fortzubewegen, zu feiern, einen Anfang zu machen, ein Ende.
 
 Die dunklen Flecken des Mondes werden Mondmeere genannt, weil man sie ursprünglich für Wasseransammlungen hielt. Es sind Becken und Senken, in denen erstarrte Lavadecken liegen. Entstanden sind sie vermutlich durch Einschläge, als der Mond noch jung und sein Mantel flüssig war.
 
