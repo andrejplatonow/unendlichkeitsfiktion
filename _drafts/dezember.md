@@ -8,7 +8,7 @@ Im Kurs sind fast alle krank oder verhindert, daher tanzen wir zu dritt; meine L
 
 ![](/uploads/moon_by_helmut_adler.jpg)
 
-Die dunklen Flecken des Mondes werden Mondmeere genannt, weil man sie ursprünglich für Wasseransammlungen hielt. Was für damalige Astronomen wie Ozeane aussah, sind Tiefebenen, Becken und Senken, oft rund, in denen erstarrte Lavadecken liegen. Entstanden sind sie vermutlich durch Einschläge, als der Mond noch jung und sein Mantel flüssig war.
+Die dunklen Flecken des Mondes werden Mondmeere genannt, weil man sie ursprünglich für Wasseransammlungen hielt. Was für damalige Astronomen wie Ozeane aussah, sind Tiefebenen, Becken und Senken, oft rund, in denen erstarrte Lavadecken liegen. Entstanden sind sie vermutlich durch Einschläge, als der Mond noch jung war und sein Mantel flüssig.
 
 Ich kann nicht genug betonen, wie aufregend ich die Fähigkeit eines Planeten, Steins, Tiers, Menschen finde, zu einer bestimmten Zeit seiner Existenz flüssig und später fest, vielleicht noch später wieder flüssig oder etwas anderes zu sein. Die Möglichkeit irdischer und außerirdischer Körper vom Moment der Zeugung oder Entstehung an, viele gewisse und ungewisse Stadien zu durchlaufen. Die nicht abgeschlossene Umgestaltung, selbst wenn dazwischen für 1 Milliarde Jahre mal Ruhe ist.
 
