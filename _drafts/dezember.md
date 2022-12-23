@@ -15,4 +15,6 @@ Auf dem Mond gibt es auch Erhebungen, flach aufgwölbte Rücken, die Berge genan
 
 Ich glaube für Mondbewohner ist Dieter der Gipfel, den man gut bei gleichgültiger Laune und mäßiger Kondition an einem Montag im Februar machen kann. Wenn sonst nichts ist. 
 
-Am Tag vor Weihnachten gehe ich in den Wald. Die Waldarbeiter, die hier im Winter Nadelbäume fällen, lassen immer einen großen Haufen Zweige liegen. Direkt an der ersten Weggabelung. Ich weiß nicht, ob das eine Art Serviceleistung für das Dorf sein soll oder Zufall ist. Jedenfalls gehe ich mit einem Arm voll Zweige nach Hause und binde sie zusammen. Der Zweighaufen an der Weggabelung im Wald ist so groß - er könnte zwei Dutzend Kranzbinde-Workshops in einer beliebigen Großstadt Deutschlands mit Material versorgen.
+Am Tag vor Weihnachten gehe ich in den Wald. Die Waldarbeiter, die hier im Winter Nadelbäume fällen, lassen immer einen großen Haufen Zweige liegen. Direkt an der ersten Weggabelung. Ich weiß nicht, ob das eine Art Serviceleistung für das Dorf sein soll oder Zufall ist. Jedenfalls gehe ich mit einem Arm voll Zweige nach Hause und binde sie zusammen. Der Zweighaufen an der Weggabelung im Wald ist so groß - er könnte zwei Dutzend Kranzbinde-Workshops in einer beliebigen Stadt Deutschlands mit Material versorgen. 
+
+Ich habe eine sehr konkrete Erinnerung daran, wie meine Mutter und etliche Tanten Ende der Achtziger in einem Wohnzimmer voller Trockenblumen und Flechtwerk sitzen. Am Ende des Tages hing in jedem Haushalt meiner weitläufigen Verwandtschaft 
