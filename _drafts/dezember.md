@@ -6,6 +6,8 @@ title: Dezember
 ![](/uploads/eisbaum.jpg)  
 Im Kurs sind fast alle krank oder verhindert, daher tanzen wir zu dritt; meine Lehrerin, eine andere Frau und ich. Wir sind vertraut miteinander, vertraut mit den Rhythmen des traditionellen ägyptischen Tanzes und dem arabischen Gesang. Daher sprechen wir kaum und die Lehrerin gibt keine Hinweise. Wir vollziehen unsere Bewegungen, lose zusammengehalten von Schrittfolgen, die Menschen vor rund zweihhundert Jahren entwickelt haben, um sich fortzubewegen, zu feiern, einen Anfang zu machen, ein Ende.
 
+![](/uploads/moon_by_helmut_adler.jpg)
+
 Die dunklen Flecken des Mondes werden Mondmeere genannt, weil man sie ursprünglich für Wasseransammlungen hielt. Es sind aber natürlich keine Meere, sondern Tiefebenen. Becken und Senken, oft kreisrund, in denen erstarrte Lavadecken liegen. Entstanden sind sie vermutlich durch Einschläge, als der Mond noch jung und sein Mantel flüssig war.
 
 Ich kann nicht genug betonen, wie wichtig mir die Fähigkeit eines Planeten, Steins, Tiers, Menschen ist, zu einer Zeit seiner Existenz flüssig und später fest und vielleicht noch später wieder flüssig oder etwas anderes zu sein. Die Möglichkeit unserer Körper und Gefühle vom Moment der Zeugung oder Entstehung an, viele gewisse und ungewisse Stadien zu durchlaufen. Die nicht abgeschlossene Umgestaltung, selbst wenn dazwischen für 1 Milliarde Jahre mal Ruhe ist.
@@ -19,3 +21,5 @@ Ich glaube für Mondbewohner ist Dieter der Gipfel, den man gut bei gleichgülti
 Am Tag vor Weihnachten gehe ich in den Wald. Die Waldarbeiter, die hier im Winter Nadelbäume fällen, lassen immer einen großen Haufen Zweige liegen. Direkt an der ersten Weggabelung. Ich weiß nicht, ob das eine Art Serviceleistung für das Dorf sein soll. Jedenfalls gehe ich mit einem Arm voll Zweige nach Hause und binde sie zusammen. Der Zweighaufen an der Weggabelung im Wald ist so groß - er könnte zwei Dutzend Kranzbinde-Workshops in einer beliebigen Stadt Deutschlands mit Material versorgen.
 
 Ich habe eine sehr konkrete Erinnerung daran, wie meine Mutter und etliche Tanten Ende der Achtziger in einem Wohnzimmer voller Trockenblumen sitzen. Am Tag darauf hing in jedem Haushalt der weitläufigen Verwandtschaft ein Flechtwerk aus Disteln, Ähren und Lavendel an Eingangstüren oder Flurwänden. Diese Gestecke hingen dort zum Teil bis weit in die Neunziger.
+
+Mondfoto: Helmut Adler www.fotodesigner.org
