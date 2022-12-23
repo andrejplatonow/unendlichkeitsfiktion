@@ -11,4 +11,4 @@ Ich kann nicht genug betonen, wie wichtig mir die Fähigkeit eines Planeten, Ste
 
 Den Mondmeeren wurden Namen gegeben. Sie heißen Meer der Kälte, Meer der Gefahren, Schlangenmeer, Meer der Begabung, Meer der Fruchtbarkeit oder Meer der Heiterkeit. Die meisten Namen stammen von dem Astronom Giovanni Battista Riccioli, der 1651 eine Karte der dunklen Mondflecken anlegte.
 
-Auf dem Mond gibt es auch Erhebungen, flach aufgwölbte Rücken, die Berge genannt werden und maxmimal 100 Meter hoch sind. Die Berge haben auch Namen bekommen, meist wurden sie nach irdischen Gebirgen oder Personen benannt. Sie heißen also zum Beispiel Karpaten, Mont Blanc, Berge des ewigen Lichts oder auch einfach mal Dieter. 
+Auf dem Mond gibt es auch Erhebungen, flach aufgwölbte Rücken, die Berge genannt werden und maxmimal 100 Meter hoch sind. Die Berge tragen ebenfalls Namen, meist den eines irdischen Gebirges oder Person. Sie heißen also zum Beispiel Karpaten, Mont Blanc, Berge des ewigen Lichts oder auch einfach mal Dieter. 
