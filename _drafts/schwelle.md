@@ -3,6 +3,6 @@ date: 2022-12-31T16:12:16.000+01:00
 title: 'Schwelle '
 
 ---
-Am letzten Tag dieses Jahres fahre ich zum Fluss und lege meine Hand ins Wasser. Es ist nicht eiskalt. Die Vegetation der Uferböschung monochromatisch im Rot der kahlen Weidenzweige und Sandgelb des trockenen Schilfs. Ich suche nach einem grünen Stein. Ich habe hier noch nie einen grünen Stein gefunden, kann mir aber vorstellen, dass es einen gibt.
+Am letzten Tag dieses Jahres fahre ich zum Fluss und lege meine Hand ins Wasser. Es ist nicht eiskalt. Die Vegetation der Uferböschung monochromatisch im Rot der kahlen Weidenzweige und Beige des trockenen Schilfs. Ich gehe im Kies auf und ab und suche nach einem grünen Stein. Ich habe hier noch nie einen grünen Stein gefunden, kann mir aber vorstellen, dass es einen gibt.
 
 Mitschwimmen. Nicht dagegenhalten.
