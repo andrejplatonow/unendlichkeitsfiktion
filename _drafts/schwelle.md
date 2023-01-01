@@ -5,11 +5,9 @@ title: 'Schwelle '
 ---
 ![](/uploads/31-12-2022_1.jpg)
 
-Am letzten Tag des Jahres fahre ich zum Fluss und lege meine Hand ins Wasser. Es ist nicht eiskalt, es hat ungefähr Oktoberkälte. Ich streife durch die Uferböschung, das Rot der kahlen Weidenzweige und Beige der trockenen Schilfhalme. 
+Am letzten Tag des Jahres fahre ich zum Fluss und lege meine Hand ins Wasser. Es ist nicht eiskalt, es hat ungefähr Oktoberkälte. Ich streife durch die Uferböschung, das Rot der kahlen Weidenzweige und das Beige des trockenen Schilfs. Im Kies gehe ich auf und ab und suche nach einem grünen Stein. Ich habe hier noch nie einen grünen Stein gesehen, kann mir aber vorstellen, heute einen zu finden. 
 
 ![](/uploads/31-12-2022_2.jpg)
-
-Ich gehe im Kies auf und ab und suche nach einem grünen Stein. Ich habe hier noch nie einen grünen Stein gesehen, kann mir aber vorstellen, heute einen zu finden. 
 
 An Silvester mache ich nichts. Ich mache sogar den Fehler, um 22:30 Uhr mit einem Projekt anzufangen, das ich eine Weile aufgeschoben hatte. Nach 20 Uhr zu arbeiten oder irgendwas erreichen zu wollen ist gegen meine Regel. Ich habe sehr strikte Regeln, um mich davor zu bewahren ein unentspannter Mensch zu werden. Es läuft dann auch total frustrierend. 
 
