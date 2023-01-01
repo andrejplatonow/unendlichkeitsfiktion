@@ -5,7 +5,7 @@ title: 'Schwelle '
 ---
 ![](/uploads/31-12-2022_1.jpg)
 
-Am letzten Tag des Jahres fahre ich zum Fluss und lege meine Hand ins Wasser. Es ist nicht eiskalt, es hat ungefähr Oktoberkälte. Ich streife durch die Uferböschung, das Rot der kahlen Weidenzweige und Beige des Schilfs. 
+Am letzten Tag des Jahres fahre ich zum Fluss und lege meine Hand ins Wasser. Es ist nicht eiskalt, es hat ungefähr Oktoberkälte. Ich streife durch die Uferböschung, das Rot der kahlen Weidenzweige und Beige der trockenen Schilfhalme. 
 
 ![](/uploads/31-12-2022_2.jpg)
 
