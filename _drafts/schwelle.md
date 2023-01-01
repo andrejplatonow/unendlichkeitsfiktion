@@ -11,7 +11,7 @@ Am letzten Tag des Jahres fahre ich zum Fluss und lege meine Hand ins Wasser. Es
 
 An Silvester mache ich nichts. Ich mache sogar den Fehler, um 22:30 Uhr mit einem Projekt anzufangen, das ich lange aufgeschoben hatte. Nach 20 Uhr zu arbeiten oder irgendwas erreichen zu wollen ist gegen meine Regeln. Ich habe sehr strikte Regeln, um mich davor zu bewahren ein unentspannter Mensch zu werden. Es läuft dann auch total frustrierend.
 
-Am ersten Tag des neues Jahres gehen wir auf einen Berg. An der Bergflanke traben Gämse durchs kniehohe papierne Gras. Die Tiere sind gut genährt oder haben ein dichtes Winterfell. Auf die Entfernung ist das schwer zu sagen.
+Am ersten Tag des neuen Jahres gehen wir auf einen Berg. An der Bergflanke traben Gämse durchs kniehohe papierne Gras. Die Tiere sind gut genährt oder haben ein dichtes Winterfell. Auf die Entfernung ist das schwer zu sagen. Es ist so warm wie sonst im Oktober oder März, wir 
 
 ![](/uploads/01-01-2023.jpg)
 
