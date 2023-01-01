@@ -13,6 +13,8 @@ An Silvester mache ich nichts. Ich mache sogar den Fehler, um 22:30 Uhr mit eine
 
 Am ersten Tag des neues Jahres gehen wir auf einen Berg. An der Bergflanke traben Gämse durchs kniehohe papierne Gras; eine Mutter (nehme ich an) und ihr Junges und später weitere ausgewachsene Tiere. Sie sind gut genährt oder haben ein dichtes Winterfell. Auf die Entfernung ist das schwer zu sagen.
 
-Den grünen Stein finde ich noch am letzten Tag des Jahres. Er liegt im flachen Flussbett an der Stelle, wo ich im Sommer häufig saß und dem Wasser zusah, wie es um mich herum vorbeifloss. Das Wasser hat mir geholfen. Viele Stunden darin zu sitzen. Eine leibliche Erfahrung zu machen irgendwo zwischen flüssig werden, nachgeben, Kontrolle verlieren und sie auch nicht mehr wollen. Das ist gut für mich.  Es ist das Gegenteil von mir. Es ist das, was mir gefehlt hat.
+![](/uploads/01-01-2023.jpg)
+
+Den grünen Stein finde ich noch am letzten Tag des Jahres. Er liegt an der Stelle im flachen Flussbett, wo ich im Sommer häufig saß und dem Wasser zusah, wie es um mich herum vorbeifloss. Das Wasser hat mir geholfen. Viele Stunden darin zu sitzen. Eine leibliche Erfahrung zu machen irgendwo zwischen flüssig werden, nachgeben, Kontrolle verlieren und sie auch nicht mehr wollen. Das ist gut für mich.  Es ist das Gegenteil von mir. Es ist das, was mir gefehlt hat.
 
 ![](/uploads/31-12-2022_7.jpg)
