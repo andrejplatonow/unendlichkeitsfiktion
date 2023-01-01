@@ -15,6 +15,6 @@ Am ersten Tag des neues Jahres gehen wir auf einen Berg. An der Bergflanke trabe
 
 ![](/uploads/01-01-2023.jpg)
 
-Den grünen Stein finde ich noch am letzten Tag des Jahres. Er liegt an der Stelle im flachen Flussbett, wo ich im Sommer häufig saß und dem Wasser zusah, wie es um mich herum vorbeifloss. Das Wasser hat mir geholfen. Viele Stunden darin zu sitzen. Eine leibliche Erfahrung zu machen, bevor ich verstehe, warum ich genau diese Erfahrung will.  angesiedelt zwischen flüssig werden, nachgeben, Kontrolle verlieren und sie auch nicht mehr wollen. Das ist gut für mich.  Es ist das Gegenteil von mir. Es ist das, was mir gefehlt hat.
+Den grünen Stein finde ich noch am letzten Tag des Jahres. Er liegt an der Stelle im flachen Flussbett, wo ich im Sommer häufig saß und dem Wasser zusah, wie es um mich herum vorbeifloss. Das Wasser hat mir geholfen. Viele Stunden darin zu sitzen. Eine leibliche Erfahrung zu machen, bevor ich verstehe, warum ich genau diese Erfahrung will. Unverhältnismäßig viel Zeit damit zu verbringen. angesiedelt zwischen flüssig werden, nachgeben, Kontrolle verlieren und sie auch nicht mehr wollen. Das ist gut für mich.  Es ist das Gegenteil von mir. Es ist das, was mir gefehlt hat.
 
 ![](/uploads/31-12-2022_7.jpg)
