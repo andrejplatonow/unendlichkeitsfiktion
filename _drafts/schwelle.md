@@ -15,7 +15,7 @@ Am ersten Tag des neuen Jahres gehen wir auf einen Berg. An der Bergflanke trabe
 
 ![](/uploads/01-01-2023.jpg)
 
-Ein Freund hat sich lange ein Fernglas gewünscht und es sich schlussendlich gekauft. Als wir auf dem Gipfel ankommen, steht der 3/4 Mond am blauen Himmel. 
+Ein Freund hat sich lange ein Fernglas gewünscht und es sich schlussendlich gekauft. Als wir auf dem Gipfel ankommen, steht der 3/4 Mond am blauen Himmel.
 
 Den grünen Stein finde ich noch am letzten Tag des Jahres. Er liegt in der Bucht im flachen Flussbett, wo ich im Sommer häufig saß und dem Wasser zusah, wie es um mich herum vorbeifloss. Das Wasser hat mir geholfen. Viele Stunden darin zu sitzen. Eine leibliche Erfahrung zu machen, bevor ich verstehe, warum ich genau diese Erfahrung will. Unverhältnismäßig viel Zeit damit zu verbringen. Das Wasser so lang zu fühlen bis diese eine verkrustete Stelle in mir flüssig wird, nachgibt, die Kontrolle verliert. Das ist das Gegenteil von mir. Es ist das, was wollte, ohne es wollen zu können.
 
