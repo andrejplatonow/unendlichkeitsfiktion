@@ -5,7 +5,7 @@ title: 'Schwelle '
 ---
 ![](/uploads/31-12-2022_1.jpg)
 
-Am letzten Tag des Jahres fahre ich zum Fluss und lege meine Hand ins Wasser. Es ist nicht eiskalt, es hat ungefähr Oktoberkälte. Ich streife durch die Uferböschung, das Rot der kahlen Weidenzweige und das Beige des trockenen Schilfs. Im Kies gehe ich auf und ab und suche nach einem grünen Stein. Ich habe hier noch nie einen grünen Stein gesehen, kann mir aber vorstellen, heute einen zu finden. 
+Am letzten Tag des Jahres fahre ich zum Fluss und lege meine Hand ins Wasser. Es ist nicht eiskalt, es hat ungefähr Oktoberkälte. Ich streife durch die Uferböschung, das Rot der kahlen Weidenzweige und das Beige des trockenen Schilfs. Im Kies drehe ich die Steine um. Ich habe hier noch nie einen grünen Stein gesehen, kann mir aber vorstellen, heute einen zu finden. 
 
 ![](/uploads/31-12-2022_2.jpg)
 
