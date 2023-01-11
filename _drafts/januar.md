@@ -17,11 +17,11 @@ Früher, als es noch kein Büromanagement und kein Verbot privater Möbelstücke
 
 Es gibt immer wieder kleine Mondbeben. Meistens auf der Seite, die unserer Erde zugewandt ist. Was eventuell an der Gravitation der Erde liegt. Umgekehrt hebt und senkt sich die Erdoberfläche um ein bis zwei Meter, je nachdem wo der Mond gerade steht. Als der Mond der Erde noch näher war, bog und verformte sich unsere Oberfläche in erheblichem Maß.
 
-In meiner anderen Aufgabe nage ich mich durch das Klassifikationssystem der psychischen Erkrankungen. Letzte Woche die Kapitel zum Formenkreis der Schizophrenien abgeschlossen. Es ist die erste Runde. In einem halben Jahr werde ich das alles noch einmal anders kennenlernen. Mein begleitendes Tier in diesen Wochen ist der Biber. Sein beharrliches Hineinraspeln in den Baum. Vielleicht habe ich schon einmal darüber geschrieben: Biber nagen den Stamm nie ganz durch. Sie hören rechtzeitig auf und lassen den Rest vom Wind erledigen. Ich mag diese Haltung. Selbstschutz und Vertrauen in die Elemente.
+In meiner anderen Aufgabe nage ich mich durch das Klassifikationssystem der psychischen Erkrankungen. Letzte Woche die Kapitel zum Formenkreis der Schizophrenien abgeschlossen. Es ist die erste Runde. In einem halben Jahr werde ich das alles noch einmal anders kennenlernen. Mein begleitendes Tier in diesen Wochen ist der Biber. Sein beharrliches Hineinraspeln in den Baum. Vielleicht habe ich schon einmal darüber geschrieben: Biber nagen den Stamm nie ganz durch. Sie hören rechtzeitig auf und lassen den Rest vom Wind erledigen. Ich mag diese Haltung. Selbstschutz. Und Vertrauen in die Elemente.
 
 ![](/uploads/beaver_work_on_many_trees_in_winter.jpg)
 
-Ich habe ChatGPT noch nicht ausprobiert, lasse mir aber gern von allen möglichen Leuten erzählen, was sie damit machen. Mehr als die Ergebnisse interessiert mich, welche Fragen die Fragenden stellen. Was die Person will, tut, erwartet, wie sie davon erzählt, worüber sie lacht, wie genau die Annäherung vor sich geht.
+Ich habe ChatGPT noch nicht ausprobiert, lasse mir aber gern von allen möglichen Leuten erzählen, was sie damit machen. Mehr als die Ergebnisse interessiert mich, welche Fragen die Fragenden stellen. Was die Person will, tut, erwartet, wie sie davon erzählt, worüber sie lacht, wie genau die Annäherung vor sich ging. Passenderweise lese ich gerade wieder Buber. "Mein Du wirkt an mir, wie ich an ihm wirke. Unser Schüler bilden uns, unsere Werke bauen uns auf. Wie werden wir von Kindern, wie von Tieren erzogen. Unerforschlich einbegriffen leben wir in der strömenden All-Gegenseitigkeit."
 
-Foto von Simon Mer  
+Angenagter Baum - Foto Simon Mer  
 [https://commons.wikimedia.org/w/index.php?curid=38109529](https://commons.wikimedia.org/w/index.php?curid=38109529 "https://commons.wikimedia.org/w/index.php?curid=38109529")
