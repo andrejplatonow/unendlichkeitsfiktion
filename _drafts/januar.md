@@ -3,7 +3,7 @@ date: 2023-01-11T15:06:32.000+01:00
 title: Hinter uns die Maschinen
 
 ---
-Der Winterhimmel an diesem Abend hinter der Bergkette ist aprikosenfarben, er dunkelt langsam nach. Es wäre ein guter Tag gewesen, um raus zu gehen, um nach der Arbeit auf einen der nahe gelegenen niedrigen Gipfel zu steigen.
+Der Winterhimmel an diesem Abend hinter der Bergkette ist aprikosenfarben. Es wäre ein guter Tag gewesen, um raus zu gehen, um nach der Arbeit auf einen der nahe gelegenen niedrigen Gipfel zu steigen.
 
 Ein Freund hat sich ein Fernglas gekauft, wir schauen bei Tageslicht auf den Mond. Die Krater sind deutlich zu erkennen, die Mondhaut pockennarbig und kreidig. Ich habe, obwohl ich mich sehr für den Mond interessiere, bisher nie durch ein Fenglas oder Teleskop auf ihn gesehen und rufe einen Verblüffungslaut, als er ins Bild rückt. Er ist wirklich eine Kugel. Wie wir.
 
