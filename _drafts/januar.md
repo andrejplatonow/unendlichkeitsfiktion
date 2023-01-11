@@ -3,7 +3,9 @@ date: 2023-01-11T15:06:32.000+01:00
 title: Hinter uns die Maschinen
 
 ---
-Der Winterhimmel an diesem Abend hinter der Bergkette ist aprikosenfarben. Es wäre ein guter Tag gewesen, um raus zu gehen, um nach der Arbeit auf einen der nahe gelegenen niedrigen Gipfel zu steigen.
+Es ist warm. Der Winterhimmel an diesem Abend aprikosenfarben. Es wäre ein guter Tag gewesen, um nach der Arbeit auf einen der nahe gelegenen Berge zu steigen, den Sonnenuntergang abzuwarten, mit der Stirnleuchte runter zu gehen, während es immer dunkler wird.
+
+![](/uploads/j.jpg)
 
 Ein Freund hat sich ein Fernglas gekauft, wir schauen bei Tageslicht auf den Mond. Die Krater sind gut zu erkennen, die Mondhaut pockennarbig und kreidig. Ich habe, obwohl ich mich sehr für den Mond interessiere, bisher nie durch ein Fenglas oder Teleskop auf ihn gesehen und rufe einen Verblüffungslaut, als er ins Bild rückt. Er ist wirklich eine Kugel. Wie wir.
 
@@ -15,7 +17,7 @@ Früher, als es noch kein Büromanagement und kein Verbot privater Möbelstücke
 
 Es gibt immer wieder kleine Mondbeben. Meistens auf der Seite, die unserer Erde zugewandt ist. Was eventuell an der Gravitation der Erde liegt. Umgekehrt hebt und senkt sich die Erdoberfläche um ein bis zwei Meter, je nachdem wo der Mond gerade steht. Als der Mond der Erde noch näher war, bog und verformte sich unsere Oberfläche wohl in regelmäßig erheblichem Maß.
 
-In meiner anderen Aufgabe nage ich mich durch das Klassifikationssystem der psychischen Erkrankungen. Letzte Woche die Kapitel zum Formenkreis der Schizophrenien abgeschlossen. Es ist die erste Runde. In einem halben Jahr werde ich das alles noch einmal anders kennenlernen. Mein begleitendes Tier in diesen Wochen ist der Biber. Sein beharrliches Hineinraspeln in den Baum, bis er fällt. Vielleicht habe ich schon einmal darüber geschrieben: Biber nagen den Stamm nie ganz durch. Sie hören rechtzeitig auf und lassen den Rest vom Wind erledigen.
+In meiner anderen Aufgabe nage ich mich durch das Klassifikationssystem der psychischen Erkrankungen. Letzte Woche die Kapitel zum Formenkreis der Schizophrenien abgeschlossen. Es ist die erste Runde. In einem halben Jahr werde ich das alles noch einmal anders kennenlernen. Mein begleitendes Tier in diesen Wochen ist der Biber. Sein beharrliches Hineinraspeln in den Baum. Vielleicht habe ich schon einmal darüber geschrieben: Biber nagen den Stamm nie ganz durch. Sie hören rechtzeitig auf und lassen den Rest vom Wind erledigen.
 
 ![](/uploads/beaver_work_on_many_trees_in_winter.jpg)
 
