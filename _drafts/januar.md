@@ -3,7 +3,7 @@ date: 2023-01-11T15:06:32.000+01:00
 title: Hinter uns die Maschinen
 
 ---
-Es ist warm. Der Winterhimmel an diesem Abend aprikosenfarben. Es wäre ein guter Tag gewesen, um nach der Arbeit auf einen der nahe gelegenen Berge zu steigen, den Sonnenuntergang abzuwarten, mit der Stirnleuchte runter zu gehen, während es immer dunkler wird.
+Es ist warm. Der Winterhimmel an diesem Abend aprikosenfarben. Es wäre ein guter Tag gewesen, um nach der Arbeit auf einen der nahe gelegenen Berge zu steigen, den Sonnenuntergang abzuwarten, mit der Stirnleuchte runter zu gehen, während es dunkel wird.
 
 ![](/uploads/j.jpg)
 
