@@ -13,7 +13,7 @@ Im Büro sitze ich einmal in der Woche neben einer etwas älteren Kollegin. Mens
 
 Früher, als es noch kein Büromanagement und kein Verbot privater Möbelstücke am Arbeitsplatz gab, kam es regelmäßig zu Räumungen, wenn Mitarbeitende krank wurden und aus dem Dienst ausschieden oder aus anderem Grund nicht wiederkehrten. Es fanden sich dabei Kühlschränke, Toaster, Kassettenrekorder, Gartenstühle, Nachtkästen, fünfarmige Deckenstrahler und häufig Wechselkleidung für alle Jahreszeiten und ein paar Hausschuhe. Viele der damaligen Mitarbeiter verbrachten ihr gesamtes Berufsleben, 40 Jahre, in der Institution. Ich glaube, sie rechneten einfach nicht mehr damit, dass das jemals vorbei sein könnte.
 
-Es gibt immer wieder kleine Erdbeben auf dem Mond. Und zwar auf der Seite, die unserer Erde zugewandt ist. Umgekehrt hebt und senkt sich die Erdoberfläche um ein bis zwei Meter, je nachdem wo der Mond gerade steht. Als der Mond der Erde näher war, bog und verformte sich unsere Oberfläche wohl noch viel stärker.
+Es gibt immer wieder kleine Mondbeben. Auf der Seite, die unserer Erde zugewandt ist. Was eventuell an der Gravitation der Erde liegt. Umgekehrt hebt und senkt sich die Erdoberfläche um ein bis zwei Meter, je nachdem wo der Mond gerade steht. Als der Mond der Erde noch näher war, bog und verformte sich unsere Oberfläche wohl in erheblichem Maß.
 
 Ich nage mich durch das Klassifikationssystem der psychischen Erkrankungen. Letzte Woche die Kapitel zum Formenkreis der Schizophrenien abgeschlossen. Es ist die erste Runde. In einem halben Jahr werde ich das alles noch einmal anders kennenlernen. Mein begleitendes Tier in diesen Wochen ist der Biber. Sein beharrliches Hineinraspeln in den Baumstamm, bis er fällt.
 
