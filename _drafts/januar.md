@@ -1,5 +1,5 @@
 ---
-date: 2023-01-11 15:06:32 +0100
+date: 2023-01-11T15:06:32.000+01:00
 title: Hinter uns die Maschinen
 
 ---
@@ -16,6 +16,8 @@ Es gibt immer wieder kleine Erdbeben auf dem Mond. Und zwar auf der Seite, die u
 Ich nage mich durch das Klassifikationssystem der psychischen Erkrankungen. Letzte Woche die Kapitel zum Formenkreis der Schizophrenien abgeschlossen. Es ist die erste Runde. In einem halben Jahr werde ich das alles noch einmal anders kennenlernen. Mein begleitendes Tier in diesen Wochen ist der Biber. Sein beharrliches Hineinraspeln in den Baumstamm, bis er fällt. 
 
 ![](/uploads/beaver_work_on_many_trees_in_winter.jpg)
+
+Ich habe ChatGPT noch nicht ausprobiert, lasse mir aber gern von allen möglichen Leuten erzählen, was sie damit machen. Mehr als die Ergebnisse interessiert mich, welche Fragen die Fragende stellt. Was die will, tut, erwartet, wie sie davon erzählt, wovon sie überrascht wird, wovon enttäuscht, worüber sie lacht, wie genau die Annäherung vor sich geht.
 
 Foto von Simon Mer  
 [https://commons.wikimedia.org/w/index.php?curid=38109529](https://commons.wikimedia.org/w/index.php?curid=38109529 "https://commons.wikimedia.org/w/index.php?curid=38109529")
