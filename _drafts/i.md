@@ -9,4 +9,6 @@ Die für die Vermittlung zuständigen Kollegen sind seit dem Sommer in einer tas
 
 Und doch ist es so. Die Institution ist auf Menschen angewiesen, zur Not auch auf gelangweilte. Wie überall gibt es aber keine Menschen mehr, jedenfalls keine die sich bewerben. Manchmal treffe ich auf dem Gang die Leute vom Recruiting. Sie winken nur ab, wenn man nach den jahrelang unbesetzten Stellen fragt. Ich will unter diesen Umständen nicht wissen, mit welcher Verzweilfung Krankenhäuser, Pflegeheime und Bildungseinrichtungen den Fachkräftemangel verwalten.
 
+Jetzt zum Mond. Ich muss mich korrigieren. Ich hatte geschrieben, auf dem Mond gäbe es nur flache Erhebungen. Das ist falsch. Es gibt einen 5.500 Meter hohen Berg auf der Vorderseite. Auf der Rückseite befindet sich der höchste Punkt, ein 10.800 Meter hoher Kraterrand.
+
 Am Nachmittag besuche ich eine Freundin in ihrer WG und verweile dafür in dem 70'er Jahre Treppenhaus
