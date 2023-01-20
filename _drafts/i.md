@@ -14,4 +14,6 @@ Jetzt zum Mond. Ich muss mich korrigieren. Ich hatte geschrieben, auf dem Mond g
 
 ![](/uploads/saturnmond-enceladus.jpg)
 
-Das ist Enceladus, einer der 82 Monde des Saturn. Seine Oberfläche ist  bedeckt mit Wassereis, das 99 % des eingestrahlten Sonnenlichts reflektiert. Er hat das größte Rückstrahlvermögen im Sonnensystem, d.h. er reflektiert Licht stärker als frisch gefallener Schnee.
+Das ist einer der 82 Monde des Saturn. Er heißt Enceladus. Seine Oberfläche ist  bedeckt mit Wassereis, das 99 % des eingestrahlten Sonnenlichts reflektiert. Er hat das größte Rückstrahlvermögen im Sonnensystem, das bedeutet er reflektiert Licht stärker als frisch gefallener Schnee.
+
+Unterdessen schneit es auf der Erde, da wo ich wohne. Es fängt am Vormittag an, es schneit den ganzen Tag und dann schneit es in der Nacht. 
