@@ -11,4 +11,8 @@ Und doch ist es so. Die Institution ist auf Menschen angewiesen, zur Not auch au
 
 ![](/uploads/krater-theophilus-im-mare-nectaris.jpg)
 
-Jetzt zum Mond. Ich muss mich korrigieren. Ich hatte geschrieben, auf dem Mond gäbe es nur flache Erhebungen. Das ist falsch. Es gibt einen 5.500 Meter hohen Berg auf der Vorderseite und einen fast 10.800 Meter hohen Kraterrand auf der Rückseite. Eine ziemlich amtliche Erhebung. Auf der Rückseite befindet sich auch der tiefste Punkt des Mondes. Ein rund acht Kilometer tiefes Einschlagloch. Die Berge des Himalaya würden nur gerade so über den Rand des Lochs hinausragen.
+Jetzt zum Mond. Ich muss mich korrigieren. Ich hatte geschrieben, auf dem Mond gäbe es nur flache Erhebungen. Das ist falsch. Es gibt einen 5.500 Meter hohen Berg auf der Vorderseite und einen fast 10.800 Meter hohen Kraterrand auf der Rückseite. Eine ziemlich amtliche Erhebung. Auf der Rückseite ist auch der tiefste Punkt des Mondes. Ein rund acht Kilometer tiefes Einschlagloch. Die Berge des Himalaya würden nur gerade so über den Rand des Lochs hinausragen.
+
+![](/uploads/saturnmond-enceladus.jpg)
+
+Das ist Enceladus, einer der 82 Monde des Saturn. Seine Oberfläche ist   überwiegend mit Wassereis bedeckt, das 99 % des eingestrahlten Sonnenlichts reflektiert. Er hat das größte Rückstrahlvermögen im Sonnensystem, d.h. er reflektiert Licht stärker als frisch gefallener Schnee.
