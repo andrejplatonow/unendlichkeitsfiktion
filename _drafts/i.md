@@ -9,10 +9,9 @@ Die für die Vermittlung zuständigen Kollegen sind seit dem Sommer in einer tas
 
 Und doch ist es so. Die Institution ist auf Menschen angewiesen, zur Not auch auf gelangweilte. Wie überall gibt es aber keine Menschen mehr, jedenfalls keine, die sich bewerben. Manchmal treffe ich auf dem Gang die Leute vom Recruiting. Sie winken nur ab, wenn man nach den jahrelang unbesetzten Stellen fragt. Ich will unter diesen Umständen nicht wissen, mit welcher Verzweilfung Krankenhäuser, Pflegeheime und Bildungseinrichtungen den Fachkräftemangel verwalten.
 
-![](/uploads/krater-theophilus-im-mare-nectaris.jpg)
-
+![](/uploads/krater-theophilus-im-mare-nectaris.jpg)  
 Jetzt zum Mond. Ich muss mich korrigieren. Ich hatte geschrieben, auf dem Mond gäbe es nur flache Erhebungen. Das ist falsch. Es gibt einen 5.500 Meter hohen Berg auf der Vorderseite und einen fast 10.800 Meter hohen Kraterrand auf der Rückseite. Eine ziemlich amtliche Erhebung. Auf der Rückseite ist auch der tiefste Punkt des Mondes. Ein rund acht Kilometer tiefes Einschlagloch. Die Berge des Himalaya würden nur gerade so über den Rand des Lochs hinausragen.
 
 ![](/uploads/saturnmond-enceladus.jpg)
 
-Das ist Enceladus, einer der 82 Monde des Saturn. Seine Oberfläche ist   überwiegend mit Wassereis bedeckt, das 99 % des eingestrahlten Sonnenlichts reflektiert. Er hat das größte Rückstrahlvermögen im Sonnensystem, d.h. er reflektiert Licht stärker als frisch gefallener Schnee.
+Das ist Enceladus, einer der 82 Monde des Saturn. Seine Oberfläche ist  bedeckt mit Wassereis, das 99 % des eingestrahlten Sonnenlichts reflektiert. Er hat das größte Rückstrahlvermögen im Sonnensystem, d.h. er reflektiert Licht stärker als frisch gefallener Schnee.
