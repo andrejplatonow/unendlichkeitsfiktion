@@ -9,4 +9,8 @@ Die für die Vermittlung zuständigen Kollegen sind seit dem Sommer in einer tas
 
 Und doch ist es so. Die Institution ist auf Menschen angewiesen, zur Not auch auf gelangweilte. Wie überall gibt es aber keine Menschen mehr, jedenfalls keine, die sich bewerben. Manchmal treffe ich auf dem Gang die Leute vom Recruiting. Sie winken nur ab, wenn man nach den jahrelang unbesetzten Stellen fragt. Ich will unter diesen Umständen nicht wissen, mit welcher Verzweilfung Krankenhäuser, Pflegeheime und Bildungseinrichtungen den Fachkräftemangel verwalten.
 
-Jetzt zum Mond. Ich muss mich korrigieren. Ich hatte geschrieben, auf dem Mond gäbe es nur flache Erhebungen. Das ist falsch. Es gibt einen 5.500 Meter hohen Berg auf der Vorderseite und einen 10.800 Meter hohen Kraterrand auf der Rückseite. Eine ziemlich amtliche Erhebung. Es gibt auch tiefe Gräben; 9.000 Meter tief.
+Jetzt zum Mond. Ich muss mich korrigieren. Ich hatte geschrieben, auf dem Mond gäbe es nur flache Erhebungen. Das ist falsch. Es gibt einen 5.500 Meter hohen Berg auf der Vorderseite und einen 10.800 Meter hohen Kraterrand auf der Rückseite. Eine ziemlich amtliche Erhebung. 
+
+![](/uploads/krater-theophilus-im-mare-nectaris.jpg)
+
+Es schneit wieder. 
