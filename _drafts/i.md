@@ -13,4 +13,4 @@ Jetzt zum Mond. Ich muss mich korrigieren. Ich hatte geschrieben, auf dem Mond g
 
 ![](/uploads/krater-theophilus-im-mare-nectaris.jpg)
 
-Es schneit wieder. 
+Daneben liegt auf der Rückseite auch der tiefste Punkt des Mondes. Ein rund acht Kilometer teifer Einschlagkrater. Die Berge des Himalaya würden also nur gerade so über den Rand ragen.
