@@ -18,4 +18,4 @@ Das ist einer der 82 Monde des Saturn. Er heißt Enceladus. Seine Oberfläche is
 
 Unterdessen schneit es auf der Erde, da wo ich wohne. Es fängt am Vormittag an, es schneit den ganzen Tag und dann schneit es in der Nacht. Die Felder verwandeln sich in eine japanische Kalligrafie. 
 
-Am Samstagabend gehe ich Tanzen. Eine kleine Turnhalle mitten in einem Park. Beim Öffnen knarzen die schweren hohen Holztüren. Es gibt sie in diesem Stadtviertel häufig: alte winzige Turnhallen, gebaut um die Jahrhundertwende, kaum größer als zwei Klassenzimmer, oft mit Bühne an einem Ende des Raumes, manchmal in Jugendstiloptik. 
+Am Samstagabend gehe ich Tanzen. Eine kleine Turnhalle mitten in einem Park. Beim Öffnen knarzen die schweren hohen Holztüren. Es gibt sie in diesem Stadtviertel häufig: alte winzige Turnhallen, gebaut um die Jahrhundertwende, kaum größer als zwei Klassenzimmer, oft mit Bühne an einem Ende des Raumes, manchmal in Jugendstiloptik. Als ich eintrete ist es dunkel und es wird dunkel bleiben, die  der etwa 100 Anwesenden manchmal rot 
