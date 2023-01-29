@@ -13,6 +13,6 @@ Vor fünf Jahren hatte ich eine ziemliche Obsession mit der japanischen, ländli
 
 Bruno Taut verließ Deutschland 1933, nachdem die Nationalsozialisten ihm die Professur an der Akademie der Künste entzogen hatten. Auf Einladung befreundeter Architekten lebte er drei Jahre in Japan, beobachtete seine Umgebung und notierte. Sehr eindrücklich beschreibt er die erste Nacht in einem traditionellen Haus (im Winter), dessen Wände aus Papier bestehen. Fazit: Innentemperatur = fast wie Außentemperatur. Das Konzept dahinter bestand darin, den Körper zu wärmen, nicht den Raum. Daher die an der Feuerstelle aufgeheizten Metallstangen, die man sich in Ärmel und Falten der Kleidung legte.
 
-Nachdem Bruno Taut alles mögliche zur japanischen Bau- und Lebensweise beobachtet und festgehalten hatte (Toiletten und Lichtstimmung auf den Toiletten, Landschaften und Feste, Kochstelle Stauräume, Religion und nicht vorhandene Abschließbarkeit des Hauses...) widmete er sich dem Teehaus im Garten. Er schrieb:
+Nachdem Bruno Taut alles mögliche zur japanischen Bau- und Lebensweise beobachtet und festgehalten hatte (Toiletten und Lichtstimmung auf den Toiletten, Landschaften und Feste, Kochstelle Stauräume, Religion und nicht vorhandene Abschließbarkeit der Türen) widmete er sich dem Teehaus im Garten. Er schrieb:
 
 "Gebaut wurde eine literarische Idee. Hütte in der Natur, Vergänglichkeit des Menschenlebens, Genügsamkeit an bescheidenen Dingen, Liebe für alles dies und infolge davon: Stille des Herzens."
