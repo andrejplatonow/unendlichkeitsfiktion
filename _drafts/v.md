@@ -7,9 +7,7 @@ Die Bergkette erscheint heute schwindsüchtig und bleich. Ein allerhellstes Blau
 
 Das Wetter ist diese Woche anstrengend. Jeden Tag taut es für ein paar Stunden und jede Nacht friert alles wieder fest. Die Kälte ist schneidend und feucht, die Wege spiegelglatt, Erwachsene hangeln sich mit aufgerissenen Augen vom Laternenmast zum Gebüsch zum Treppengeländer zum S-Bahnsteig und es ist viel erreicht, wenn das ohne Sturz bewältigt wird.  
   
-Aus dem Unterboden des Autos tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weiter in seiner Garage eine Hebebühne mit Notfallservice betreibt versichert, dass es sich nicht Bremsflüssigkeit, sondern Kontrastmittel der Klimaanlage sei, kein akuter Handlungsbedarf, im Frühling noch mal anschauen. Er macht das umsonst und lächelt, während ich in seiner einfahrt herumschlittere. 
-
-Ich mag diese Nachbarschaft. Jede und jeder kann irgendwas oder hat irgendwas. Werkzeug, Anhänger, Feuerholz, Leitern, Wissen, Erfahrung, Charme.
+Aus dem Auto tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weiter in seiner Garage eine Hebebühne mit Notfallservice betreibt versichert, dass es nicht Bremsflüssigkeit, sondern Kontrastmittel der Klimaanlage sei, kein akuter Handlungsbedarf, im Frühling noch mal anschauen. Er macht das umsonst und lächelt, während ich in seiner Einfahrt umherschlittere. Ich mag diese Nachbarschaft. Jede und jeder kann irgendwas oder hat irgendwas. Werkzeug, Anhänger, Feuerholz, Leitern, Wissen, Erfahrung, Charme.
 
 ![](/uploads/bruno-taut.jpg)
 
