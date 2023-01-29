@@ -5,7 +5,9 @@ title: V
 ---
 Die Bergkette erscheint heute schwindsüchtig und bleich. Ein allerhellstes Blau vor weißem Licht; in Bodennähe Nebel und weiter oben Farbauflösung. Selbst für ein Pastellaquarell wäre das ein wenig zu nichtdeckend. Gerade deshalb ist es natürlich fabelhaft. Eine Halluzination von Winter.
 
-Das Wetter diese Woche ist anstrengend. Jeden Tag taut es für ein paar Stunden und jede Nacht friert alles wieder fest. Die Kälte ist schneidend und feucht, die Wege spiegelglatt, Erwachsene hangeln sich mit aufgerissenen Augen vom Laternenmast zum Gebüsch zum Treppengeländer zum S-Bahnsteig und es ist viel erreicht, wenn das ohne Sturz bewältigt wird. Aus dem Auto tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weiter in seiner Garage eine Hebebühne mit Notfallservice betreibt, versichert, dass es nicht Bremsflüssigkeit, sondern Kontrastmittel der Klimaanlage sei, kein akuter Handlungsbedarf, im Frühling noch mal anschauen. Er macht das umsonst und lächelt, während ich in seiner Einfahrt umherschlittere. Ich mag diese Nachbarschaft. Jede und jeder kann irgendwas oder hat irgendwas. Werkzeug, Anhänger, Leitern, Tierschutzideale, Erfahrung, Charme.
+Das Wetter ist auch anstrengend. Jeden Tag taut es für ein paar Stunden und jede Nacht friert alles wieder fest. Die Kälte ist schneidend und feucht, die Wege glatt, Erwachsene hangeln sich mit aufgerissenen Augen vom Laternenmast zum Gebüsch zum Treppengeländer zum S-Bahnsteig und es ist viel erreicht, wenn das ohne Sturz bewältigt wird. 
+
+Aus dem Auto tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weiter in seiner Garage eine Hebebühne mit Notfallservice betreibt, versichert, dass es nicht Bremsflüssigkeit, sondern Kontrastmittel der Klimaanlage sei, kein akuter Handlungsbedarf, im Frühling noch mal anschauen. Er macht das umsonst und lächelt, während ich in seiner Einfahrt umherschlittere. Ich mag diese Nachbarschaft. Jede und jeder kann irgendwas oder hat irgendwas. Werkzeug, Anhänger, Leitern, Tierschutzideale, Erfahrung, Charme.
 
 ![](/uploads/bruno-taut.jpg)
 
