@@ -11,6 +11,6 @@ Aus dem Auto tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weite
 
 ![](/uploads/bruno-taut.jpg)
 
-Vor fünf Jahren hatte ich eine ziemliche Obsession mit der japanischen, ländlichen Architektur des 19. und frühen 20. Jahrhunderts. Ich hatte Bruno Taut "Das japanische Haus und sein leben gelesen" und sah mit nachts die Filme von Ozu Yasujirō an, wegen der Innenräume, nicht wegen der Handlung.
+Vor fünf Jahren hatte ich eine ziemliche Obsession mit der japanischen, ländlichen Architektur des 19. und frühen 20. Jahrhunderts. Ich hatte Bruno Taut "Das japanische Haus und sein Leben" gelesen und sah mir nachts die Filme von Ozu Yasujirō an, wegen der Innenräume, nicht wegen der Handlung.
 
 Bruno Taut verließ Deutschland 1933, nachdem die Nationalsozialisten ihm die Professur an der Akademie der Künste enzogen hatten. Auf Einladung befreundeter Architekten lebte und arbeitete er ein paar Jahre in Japan, beobachtete seine Umgebung und verfasste theoretische Werke. Sehr eindrücklich beschreibt er die erste Nacht in einem japansichen Haus (im Winter), dessen Wände aus Papier bestehen. Fazit: Innentemperatur = fast wie Außentemperatur. Das Konzept dahinter bestand darin, den Körper zu wärmen, nicht den Raum. Daher die an der Feuerstelle aufgeheizten Metallstangen, die sich traditionell gekleidete Japaner in die Ärmel und Falten ihrer Kleidung legten.
