@@ -20,3 +20,5 @@ Nachdem Bruno Taut alles mögliche zur japanischen Bau- und Lebensweise beobacht
 "Gebaut wurde eine literarische Idee. Hütte in der Natur, Vergänglichkeit des Menschenlebens, Genügsamkeit an bescheidenen Dingen, Liebe für alles dies und infolge davon: Stille des Herzens."
 
 ![](/uploads/haselnuss-winter.jpg)
+
+In der Instiution wird nun jeden Monat ein Babyboomer verabschiedet. Kaum eine Woche ohne Ankündigung einer Feier anlässlich bevorstehender Pensionierung. Mit den meisten war eine verlässliche und angenehme Zusammenarbeit möglich. 
