@@ -3,7 +3,7 @@ date: 2023-01-29 18:33:28 +0100
 title: V
 
 ---
-Die Bergkette erscheint heute schwindsüchtig und bleich. Ein allerhellstes Blau vor weißem Licht; in Bodennähe Nebel und weiter oben Farbauflösung. Selbst für ein Pastellaquarell wäre das ein wenig zu nichtdeckend. Gerade deshalb ist es natürlich fabelhaft. Eine Halluzination von Winter.
+Die Bergkette erscheint heute schwindsüchtig und bleich. Ein allerhellstes Blau vor weißem Licht; in Bodennähe Nebel und weiter oben Farbauflösung. Selbst für ein Pastellaquarell wäre das zu nichtdeckend. Gerade deshalb ist es natürlich fabelhaft. Eine Halluzination von Winter.
 
 Das Wetter ist auch anstrengend. Jeden Tag taut es für ein paar Stunden und jede Nacht friert alles wieder fest. Die Kälte ist schneidend und feucht, die Wege glatt, Erwachsene hangeln sich mit aufgerissenen Augen vom Laternenmast zum Gebüsch zum Treppengeländer zum S-Bahnsteig und es ist viel erreicht, wenn das ohne Sturz bewältigt wird. 
 
