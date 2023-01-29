@@ -3,7 +3,7 @@ date: 2023-01-29 18:33:28 +0100
 title: V
 
 ---
-Die Bergkette erscheint heute schwindsüchtig und bleich. Ein allerhellstes Blau vor weißem Winterlicht. 
+Die Bergkette erscheint heute schwindsüchtig und bleich. Ein allerhellstes Blau vor weißem Licht; in Bodennähe Nebel und weiter oben Farbauflösung. Selbst für ein Pastellaquarell wäre das ein wenig zu nichtdeckend. Gerade deshalb ist es natürlich fabelhaft unentschlossen schön. Eine Halluzination von Winter.
 
 ![](/uploads/bruno-taut.jpg)
 
