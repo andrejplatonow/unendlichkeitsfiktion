@@ -3,6 +3,7 @@ date: 2023-01-29 18:33:28 +0100
 title: V
 
 ---
+Die Bergkette erscheint heute schwindsüchtig und bleich. Ein allerhellstes Blau vor weißem Winterlicht. 
 
 ![](/uploads/bruno-taut.jpg)
 
