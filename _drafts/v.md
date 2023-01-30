@@ -11,12 +11,14 @@ In einer Arbeitsgruppe mit Leuten, die sich zum Teil noch nicht kennen, bläst s
 
 Frauen in meiner Altesspanne sollten 8-17 Liegestütze am Stück schaffen. Ich kann 0,5. Gelegentlich nehme ich einen Anlauf, trainiere und kann irgendwann 2. Dann werde ich faul und bin wieder bei 0,5. In meiner Tanzgruppe tanzen ein paar ältere Damen und ich nehme ihre Warnungen sehr ernst; die nachlassende Knochendichte, das Frakturrisiko, die verminderte Regenerationsfähigkeit. Eine Achtzigjährige hat zu mir gesagt: Zum Schluss sind es nur Muskeln, die diesen Schrotthaufen zusammenhalten. 
 
+In der Institution wird nun jeden Monat ein Babyboomer verabschiedet. Kaum eine Woche ohne Ankündigung einer Feier anlässlich bevorstehender Pensionierung. Mit den meisten war eine verlässliche und angenehme Zusammenarbeit möglich. Wenn die Stellen weiterhin unbesetzt bleiben, hätte ich tatsächlich nichts dagegen, wenn KI ein paar davon übernimmt. 
+
 ![](/uploads/bruno-taut.jpg)
 
 Vor einer Weile hatte ich eine ziemliche Obsession mit der japanischen, ländlichen Architektur des 19. und frühen 20. Jahrhunderts. Ich hatte Bruno Taut "Das japanische Haus und sein Leben" gelesen und sah mir nachts die Filme von Ozu Yasujirō an, wegen der Innenräume, nicht wegen der Handlung.
 
 Bruno Taut verließ Deutschland 1933, nachdem die Nationalsozialisten ihm die Professur an der Akademie der Künste entzogen hatten. Auf Einladung befreundeter Architekten lebte er drei Jahre in Japan, beobachtete seine Umgebung und notierte. Eindrücklich beschreibt er die erste Nacht in einem traditionellen Haus mit Außenwänden aus Papier (im Winter). Fazit: Innentemperatur = fast wie Außentemperatur. Die Idee bestand darin, den Körper zu wärmen, nicht den Raum. Daher die an der Feuerstelle aufgeheizten kleinen Metallstangen, die man sich in Ärmel und Falten der Kleidung legte.
 
-![](/uploads/haselnuss-winter.jpg)
+"Gebaut wurde eine literarische Idee. Hütte in der Natur, Vergänglichkeit des Menschenlebens, Genügsamkeit an bescheidenen Dingen, Liebe für alles dies und infolge davon: Stille des Herzens."
 
-In der Institution wird nun jeden Monat ein Babyboomer verabschiedet. Kaum eine Woche ohne Ankündigung einer Feier anlässlich bevorstehender Pensionierung. Mit den meisten war eine verlässliche und angenehme Zusammenarbeit möglich. Wenn die Stellen weiterhin unbesetzt bleiben, hätte ich tatsächlich nichts dagegen, wenn KI ein paar davon übernimmt. 
+![](/uploads/haselnuss-winter.jpg)
