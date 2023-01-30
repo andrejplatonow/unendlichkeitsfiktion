@@ -5,9 +5,9 @@ title: V
 ---
 Die Bergkette erscheint heute schwindsüchtig und bleich. Ein allerhellstes Blau vor weißem Licht; in Bodennähe Nebel und weiter oben Farbauflösung. Selbst für ein Pastellaquarell wäre das zu nichtdeckend. Gerade deshalb ist es natürlich fabelhaft. Eine Halluzination von Winter.
 
-Es ist fabelhaft und anstrengend. Jeden Tag taut es für ein paar Stunden und jede Nacht friert alles wieder fest. Die Kälte schneidet, die Wege sind glatt, Erwachsene hangeln sich mit aufgerissenen Augen vom Laternenmast zum Gebüsch zum Treppengeländer zum S-Bahnsteig und es ist viel erreicht, wenn das ohne Sturz bewältigt wird. 
+Es ist fabelhaft und anstrengend. Jeden Tag taut es für ein paar Stunden und jede Nacht friert alles wieder fest. Die Kälte schneidet, die Wege sind glatt, Erwachsene hangeln sich mit aufgerissenen Augen vom Laternenmast zum Gebüsch zum Treppengeländer zum S-Bahnsteig und es ist viel erreicht, wenn das ohne Sturz bewältigt wird. Er wäre eine gute Woche, um das Haus nicht zu verlassen. Aber gerade jetzt liegen viele Termine an und ich bin mit den Bedingungen des Hin- und Zurürkkommens mindestens so beschäftigt wie mit den Terminen an sich.
 
-Aus dem Auto tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weiter in seiner Garage eine Hebebühne mit Notfallservice betreibt, versichert, dass es nicht Bremsflüssigkeit, sondern Kontrastmittel der Klimaanlage sei, kein akuter Handlungsbedarf, im Frühling noch mal anschauen. Er macht das umsonst und lächelt, während ich in seiner Einfahrt umherschlittere. Ich mag diese Nachbarschaft. Jede und jeder kann irgendwas oder hat irgendwas. Werkzeug, Anhänger, Leitern, einen Tierschutzverein, Grimmigkeit oder Charme. 
+Aus dem Auto tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weiter in seiner Garage eine Hebebühne mit Notfallservice betreibt, versichert, dass es nicht Bremsflüssigkeit, sondern Kontrastmittel der Klimaanlage sei, kein akuter Handlungsbedarf, im Frühling noch mal anschauen. Er macht das umsonst und lächelt, während ich in seiner Einfahrt umherschlittere. Ich mag diese Nachbarschaft. Jede und jeder kann irgendwas oder hat irgendwas. Werkzeug, Anhänger, Leitern, einen Tierschutzverein, Grimmigkeit oder Charme.
 
 ![](/uploads/bruno-taut.jpg)
 
@@ -21,4 +21,4 @@ Nachdem Bruno Taut alles mögliche zur japanischen Bau- und Lebensweise beobacht
 
 ![](/uploads/haselnuss-winter.jpg)
 
-In der Instiution wird nun jeden Monat ein Babyboomer verabschiedet. Kaum eine Woche ohne Ankündigung einer Feier anlässlich bevorstehender Pensionierung. Mit den meisten war eine verlässliche und angenehme Zusammenarbeit möglich. 
+In der Instiution wird nun jeden Monat ein Babyboomer verabschiedet. Kaum eine Woche ohne Ankündigung einer Feier anlässlich bevorstehender Pensionierung. Mit den meisten war eine verlässliche und angenehme Zusammenarbeit möglich.
