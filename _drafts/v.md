@@ -11,7 +11,7 @@ In einer Arbeitsgruppe mit Leuten, die sich zum Teil noch nicht kennen, bläst s
 
 Frauen in meiner Altesspanne sollten 8-17 Liegestütze am Stück schaffen. Ich kann 0,5. Gelegentlich nehme ich einen Anlauf, trainiere und kann irgendwann 2. Dann werde ich faul und bin wieder bei 0,5. In meiner Tanzgruppe tanzen ein paar ältere Damen und ich nehme ihre Progrnosen sehr ernst; die nachlassende Knochendichte, das Frakturrisiko, die verminderte Regenerationsfähigkeit. Eine sehr schön geschminkte Achtzigjährige hat zu mir gesagt: Zum Schluss sind es nur Muskeln, die diesen Schrotthaufen zusammenhalten.
 
-In der Institution wird nun jeden Monat ein Babyboomer verabschiedet. Kaum eine Woche ohne Ankündigung einer Feier anlässlich bevorstehender Pensionierung. Mit den meisten war eine verlässliche und angenehme Zusammenarbeit möglich. Wenn die Stellen weiterhin unbesetzt bleiben, hätte ich tatsächlich nichts dagegen, wenn KI ein paar davon übernimmt.
+In der Institution wird nun jeden Monat ein Babyboomer verabschiedet. Kaum eine Woche ohne Ankündigung einer Feier anlässlich bevorstehender Pensionierung. Mit den meisten war eine verlässliche und angenehme Zusammenarbeit möglich. Wenn die Stellen weiterhin unbesetzt bleiben, hätte ich nichts dagegen, wenn KI ein paar davon übernimmt.
 
 ![](/uploads/bruno-taut.jpg)
 
