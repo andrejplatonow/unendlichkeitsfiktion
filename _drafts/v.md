@@ -21,4 +21,6 @@ Nachdem Bruno Taut alles mögliche zur japanischen Bau- und Lebensweise beobacht
 
 ![](/uploads/haselnuss-winter.jpg)
 
-In der Instiution wird nun jeden Monat ein Babyboomer verabschiedet. Kaum eine Woche ohne Ankündigung einer Feier anlässlich bevorstehender Pensionierung. Mit den meisten war eine verlässliche und angenehme Zusammenarbeit möglich.
+In der Institution wird nun jeden Monat ein Babyboomer verabschiedet. Kaum eine Woche ohne Ankündigung einer Feier anlässlich bevorstehender Pensionierung. Mit den meisten war eine verlässliche und angenehme Zusammenarbeit möglich. Wenn die Stellen weiterhin unbesetzt bleiben, hätte ich tatsächlich nichts dagegen, wenn KI ein paar davon übernimmt. 
+
+Frauen in meiner Altesspanne sollten 8-17 Liegestütze am Stück schaffen. Ich kann 0,5. Gelegentlich nehme ich einen Anlauf, trainiere und kann irgendwann 2. Dann kann ich mich wochenlang nicht motivieren und bin wieder bei 0,5. In meiner Tanzgruppe tanzen ein paar ältere Damen und ich nehme ihre Warnungen sehr ernst; die nachlassende Knochendichte, das Frakturrisiko, die verminderte Regenerationsfähigkeit. Eine Achtzigjährige hat zu mir gesagt: Zum Schluss sind es nur Muskeln, die diesen Schrotthaufen zusammenhalten. 
