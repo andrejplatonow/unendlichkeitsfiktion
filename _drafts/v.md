@@ -9,7 +9,7 @@ Es ist fabelhaft und anstrengend. Jeden Tag taut es für ein paar Stunden und je
 
 In einer Arbeitsgruppe mit Leuten, die sich zum Teil noch nicht kennen, bläst sich ein Mann bereits in der Vorstellungsrunde ganz schön auf. Als er zu einem bestimmten Zeitpunkt einer anderen Person ziemlich uninformierten Käse erzählt, hinterfrage ich seine Aussage. Er eskaliert umgehend in der allerhässlichsten Weise. Ich bin sehr wütend und kann mich lange nicht beruhigen. Freue mich aber, dass ich seine mangelnde Interaktionsfähigkeit entlarvt habe und die anderen das mitgekriegt haben. Besser es ist gleich beim ersten Treffen klar, dass man es hier nicht mit einer harmlosen Person zu tun hat.
 
-Aus dem Auto tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weiter in seiner Garage eine Hebebühne mit Notfallservice betreibt, versichert, dass es nicht Bremsflüssigkeit, sondern Kontrastmittel der Klimaanlage sei, kein akuter Handlungsbedarf, im Frühling noch mal anschauen. Er macht das umsonst und lächelt, während ich in seiner Einfahrt umherschlittere. Ich mag diese Nachbarschaft. Jede und jeder kann irgendwas oder hat irgendwas. Werkzeug, Anhänger, Leitern, einen Tierschutzverein, zahllose Ehrenämter, einen kleinen Knall oder Charme.
+Frauen in meiner Altesspanne sollten 8-17 Liegestütze am Stück schaffen. Ich kann 0,5. Gelegentlich nehme ich einen Anlauf, trainiere und kann irgendwann 2. Dann werde ich faul und bin wieder bei 0,5. In meiner Tanzgruppe tanzen ein paar ältere Damen und ich nehme ihre Warnungen sehr ernst; die nachlassende Knochendichte, das Frakturrisiko, die verminderte Regenerationsfähigkeit. Eine Achtzigjährige hat zu mir gesagt: Zum Schluss sind es nur Muskeln, die diesen Schrotthaufen zusammenhalten. 
 
 ![](/uploads/bruno-taut.jpg)
 
@@ -17,12 +17,6 @@ Vor einer Weile hatte ich eine ziemliche Obsession mit der japanischen, ländlic
 
 Bruno Taut verließ Deutschland 1933, nachdem die Nationalsozialisten ihm die Professur an der Akademie der Künste entzogen hatten. Auf Einladung befreundeter Architekten lebte er drei Jahre in Japan, beobachtete seine Umgebung und notierte. Eindrücklich beschreibt er die erste Nacht in einem traditionellen Haus mit Außenwänden aus Papier (im Winter). Fazit: Innentemperatur = fast wie Außentemperatur. Die Idee bestand darin, den Körper zu wärmen, nicht den Raum. Daher die an der Feuerstelle aufgeheizten kleinen Metallstangen, die man sich in Ärmel und Falten der Kleidung legte.
 
-Nachdem Bruno Taut alles mögliche zur japanischen Bau- und Lebensweise beobachtet und festgehalten hatte (Toiletten und Lichtstimmung auf den Toiletten, Landschaften und Feste, Kochen und Stauräume, Religion und nicht vorhandene Abschließbarkeit der Türen) widmete er sich dem Teehaus im Garten. Er schrieb:
-
-"Gebaut wurde eine literarische Idee. Hütte in der Natur, Vergänglichkeit des Menschenlebens, Genügsamkeit an bescheidenen Dingen, Liebe für alles dies und infolge davon: Stille des Herzens."
-
 ![](/uploads/haselnuss-winter.jpg)
 
 In der Institution wird nun jeden Monat ein Babyboomer verabschiedet. Kaum eine Woche ohne Ankündigung einer Feier anlässlich bevorstehender Pensionierung. Mit den meisten war eine verlässliche und angenehme Zusammenarbeit möglich. Wenn die Stellen weiterhin unbesetzt bleiben, hätte ich tatsächlich nichts dagegen, wenn KI ein paar davon übernimmt. 
-
-Frauen in meiner Altesspanne sollten 8-17 Liegestütze am Stück schaffen. Ich kann 0,5. Gelegentlich nehme ich einen Anlauf, trainiere und kann irgendwann 2. Dann werde ich faul und bin wieder bei 0,5. In meiner Tanzgruppe tanzen ein paar ältere Damen und ich nehme ihre Warnungen sehr ernst; die nachlassende Knochendichte, das Frakturrisiko, die verminderte Regenerationsfähigkeit. Eine Achtzigjährige hat zu mir gesagt: Zum Schluss sind es nur Muskeln, die diesen Schrotthaufen zusammenhalten. 
