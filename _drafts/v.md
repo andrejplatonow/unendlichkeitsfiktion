@@ -11,9 +11,9 @@ Aus dem Auto tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weite
 
 ![](/uploads/bruno-taut.jpg)
 
-Vor fünf Jahren hatte ich eine ziemliche Obsession mit der japanischen, ländlichen Architektur des 19. und frühen 20. Jahrhunderts. Ich hatte Bruno Taut "Das japanische Haus und sein Leben" gelesen und sah mir nachts die Filme von Ozu Yasujirō an, wegen der Innenräume, nicht wegen der Handlung.
+Vor einer Weile hatte ich eine ziemliche Obsession mit der japanischen, ländlichen Architektur des 19. und frühen 20. Jahrhunderts. Ich hatte Bruno Taut "Das japanische Haus und sein Leben" gelesen und sah mir nachts die Filme von Ozu Yasujirō an, wegen der Innenräume, nicht wegen der Handlung.
 
-Bruno Taut verließ Deutschland 1933, nachdem die Nationalsozialisten ihm die Professur an der Akademie der Künste entzogen hatten. Auf Einladung befreundeter Architekten lebte er drei Jahre in Japan, beobachtete seine Umgebung und notierte. Eindrücklich beschreibt er die erste Nacht in einem traditionellen Haus (im Winter), dessen Wände aus Papier bestehen. Fazit: Innentemperatur = fast wie Außentemperatur. Die Idee bestand darin, den Körper zu wärmen, nicht den Raum. Daher die an der Feuerstelle aufgeheizten kleinen Metallstangen, die man sich in Ärmel und Falten der Kleidung legte.
+Bruno Taut verließ Deutschland 1933, nachdem die Nationalsozialisten ihm die Professur an der Akademie der Künste entzogen hatten. Auf Einladung befreundeter Architekten lebte er drei Jahre in Japan, beobachtete seine Umgebung und notierte. Eindrücklich beschreibt er die erste Nacht in einem traditionellen Haus mit Außenwänden aus Papier (im Winter). Fazit: Innentemperatur = fast wie Außentemperatur. Die Idee bestand darin, den Körper zu wärmen, nicht den Raum. Daher die an der Feuerstelle aufgeheizten kleinen Metallstangen, die man sich in Ärmel und Falten der Kleidung legte.
 
 Nachdem Bruno Taut alles mögliche zur japanischen Bau- und Lebensweise beobachtet und festgehalten hatte (Toiletten und Lichtstimmung auf den Toiletten, Landschaften und Feste, Kochen und Stauräume, Religion und nicht vorhandene Abschließbarkeit der Türen) widmete er sich dem Teehaus im Garten. Er schrieb:
 
