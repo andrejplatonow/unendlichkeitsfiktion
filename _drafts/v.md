@@ -11,6 +11,8 @@ Normalerweise ist jetzt die Jahrezeit, in der ich webe. Nichts Aufwendiges, ledi
 
 Etwas nicht zu denken, was denkbar ist, aber mich noch überfordert, hat überraschenderweise viel damit zu tun, eine körperliche Grenze zu markieren. Ich mache also vor dem Einschlafen manchmal Bewegungen, die unter anderem in Selbstverteidigungskursen geübt werden. Laut der somatischen Entwicklungspsychologie ist das nicht verwunderlich. Wer sich traut, körperlich etwas abzuwehren oder zu stoppen, kann auch eigene Gedanken in die Schranken weisen. Die äußere Bewegung ist der inneren Bewegung verwandt. Mir ist dabei wichtig, nie in einen offenen Kampf mit meinen Gedanken einzutreten. Ich bedanke mich für ihre Anregung und vertröste sie auf später - zum Beispiel den Zeitpunkt, ab dem ich in der Lage sein werde, mich ihnen zu widmen ohne dabei Schaden zu nehmen.
 
+Etwas nicht zu denken, was denkbar ist, aber mich noch überfordert, hat überraschenderweise viel damit zu tun, eine körperliche Grenze zu markieren. Ich mache also vor dem Einschlafen manchmal Bewegungen, die unter anderem in Selbstverteidigungskursen geübt werden. Laut der somatischen Entwicklungspsychologie ist das nicht verwunderlich. Wer sich traut, körperlich etwas abzuwehren oder zu stoppen, kann auch eigene Gedanken in die Schranken weisen. Die äußere Bewegung ist der inneren Bewegung verwandt. Mir ist dabei wichtig, nie in einen offenen Kampf mit meinen Gedanken einzutreten. Ich bedanke mich für ihre Anregung und vertröste sie auf später - zum Beispiel den Zeitpunkt, ab dem ich in der Lage sein werde, mich ihnen zu widmen ohne dabei Schaden zu nehmen.
+
 ![](/uploads/ziegen-winter.jpg)
 
 Meine Tanzlehrerin musste während der Pandemie ihr Studio aufgeben. Jetzt treffen wir uns in dem schlecht beheizbaren Erdgeschoss einer ehemaligen Nähmaschinenfabrik. Es fühlt sich nicht so industrial-romantisch an, wie das Wort Nähmaschinenfabrik suggeriert. Das Gebäude ist marode, die Toiletten stinken, die Wände wurden mit oranger Wischtechnik bemalt, ein Fenster lässt sich nicht vollständig schließen, der Vermieter hat den Schlitz mit Gaffer Tape "repariert".
@@ -19,4 +21,4 @@ Die Kälte nervt. Nachdem ich den Tag über im Büro gefroren habe, friere ich i
 
 ![](/uploads/bucherstapel.jpg)
 
-Ich besitze nicht mehr viele Bücher. Diejenigen, die geblieben sind, beinhalten Aussagen über den Zustand der Welt, wie ich sie aktuell verstehe. Es ist eine kleine Ecke in der großen Bibliothek der Erfahrungsberichte der Menschen. 
+Ich besitze nicht mehr viele Bücher. Diejenigen, die geblieben sind, beinhalten verlässliche Aussagen über den Zustand der Welt, wie ich sie verstehe. Es ist eine kleine Ecke in der großen Bibliothek der Erfahrungsberichte der Menschen. Mit 99,9% kann ich 
