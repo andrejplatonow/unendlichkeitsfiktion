@@ -3,7 +3,7 @@ date: 2023-02-02 20:13:13 +0100
 title: V
 
 ---
-Aus dem Auto tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weiter in seiner Garage eine Hebebühne und Notfallservice betreibt, versichert, es sei keine Bremsflüssigkeit, sondern das Kontrastmittel der Klimaanlage, kein akuter Handlungsbedarf. Er macht das umsonst und lächelt, als ich auf dem Glatteis in seiner Einfahrt umherschlittere. Ich mag diese Nachbarschaft. Jede und jeder kann irgendwas oder hat irgendwas. Werkzeug, Anhänger, Leitern, einen Vogelschutzverein, eine Blaskapelle, eine Meditationsgruppe, die das Meditieren aufgegeben hat und sich nur noch zum Backen trifft.
+Aus dem Auto tritt eine Flüssigkeit aus. Der junge Mann, der zwei Häuser weiter in seiner Garage eine Hebebühne und Notfallservice betreibt, versichert, es sei keine Bremsflüssigkeit, sondern das Kontrastmittel der Klimaanlage, kein akuter Handlungsbedarf. Er macht das umsonst und lächelt, als ich auf dem Glatteis in seiner Einfahrt umherschlittere. Ich mag diese Nachbarschaft. Jede und jeder kann irgendwas oder hat irgendwas. Werkzeug, Anhänger, Leitern, einen Vogelschutzverein, eine Blaskapelle, einen kleinen Knall oder eine Meditationsgruppe, die das Meditieren aufgegeben hat und sich nur noch zum Backen trifft.
 
 ![](/uploads/haselnuss-winter.jpg)
 
@@ -21,4 +21,4 @@ Die Kälte nervt. Nachdem ich den Tag über im Büro gefroren habe, friere ich i
 
 ![](/uploads/bucherstapel.jpg)
 
-Ich besitze nicht mehr viele Bücher. Diejenigen, die geblieben sind, beinhalten verlässliche Aussagen über den Zustand der Welt, wie ich sie verstehe. Es ist eine kleine Ecke in der großen Bibliothek der Erfahrungsberichte der Menschen. Mit 99,9% kann ich 
+Ich besitze nicht mehr viele Bücher. Diejenigen, die geblieben sind, beinhalten verlässliche Aussagen über den Zustand der Welt, wie ich sie verstehe. Es ist eine kleine Ecke in der großen Bibliothek der Erfahrungsberichte der Menschen. Mit 99,9% kann ich
