@@ -7,7 +7,7 @@ Ich mag das abendliche Tschilpen der Vögel, ihre kleine Gesprächigkeit bevor s
 
 ![](/uploads/nacht-1.jpg)
 
-Am Freitag ist die Klimademo, aber mir geht es nicht gut und ich muss zwei Tage im Bett liegen. Nebenher lerne ich und träume im Anschluss die ganze Zeit, dass jemand bipolar Typ II ist und mir seine Symptome ins Ohr sagt. Und dass ich immer wieder darauf erwidere: Ja, das sind Kennzeichen einer Hypomanie. 
+Am Freitag ist die Klimademo, aber mir geht es nicht gut und ich muss zwei Tage im Bett liegen. Nebenher lerne ich und träume im Anschluss die ganze Zeit, dass jemand bipolar Typ II ist und mir seine Symptome ins Ohr sagt. Und dass ich darauf erwidere: Ja, das sind Kennzeichen einer Hypomanie. 
 
 Ohne Witz, so flach sind meine Träume. Einfach die Wiederholung des Gelernten. 
 
