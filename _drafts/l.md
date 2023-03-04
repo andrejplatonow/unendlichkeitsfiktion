@@ -7,7 +7,7 @@ Ich mag das abendliche Tschilpen der Vögel, ihre kleine Gesprächigkeit bevor s
 
 ![](/uploads/nacht-1.jpg)
 
-Am Freitag ist die Klimademo, aber mir geht es nicht gut und ich muss zwei Tage im Bett liegen und lese mit, was passiert. Nebenher lerne ich und träume dann die ganze Zeit, dass jemand bipolar Typ II ist und mir seine Symptome ins Ohr flüstert. Ohne Witz, so flach sind meine Träume. Einfach die Wiederholung des Gelernten. Ich halte mich  für einen einigermaßen empfindungsreichen Menschen und erwarte mir von meinen Träumen zumindest ein bisschen Subtilität, etwas Verkleidung oder ein Rätsel.
+Am Freitag ist die Klimademo, aber mir geht es nicht gut und ich muss zwei Tage im Bett liegen und lese mit, was passiert. Nebenher lerne ich und träume dann die ganze Zeit, dass jemand bipolar Typ II ist und mir seine Symptome ins Ohr flüstert. Ohne Witz, so flach sind meine Träume. Einfach die Wiederholung des Gelernten. 
 
 Nach dem Wintereinbruch letzte Woche taut es wieder, es perlt und tropft von den Dächern, ich wache auf vom Gurgeln des konstant sich verflüssigenden Schnees. Ein Freund hat Geburtstag. Er ist einer der zwei Männer in meinem Umfeld, die sich explizit über Blumen freuen und sich auch selbst Blumen kaufen, daher gehe ich zur Floristin an der Hauptstraße und wähle weißen Ginster für ihn und blasslila Rosen für mich. Bei allen bleichen, nicht-kräftigen Farben muss ich regelmäßig an Egon Friedell denken, der 1928 so herrlich den Hang des Rokoko zu Blutarmut, Niedergang und Stadien des Verwelkens beschrieb:
 
