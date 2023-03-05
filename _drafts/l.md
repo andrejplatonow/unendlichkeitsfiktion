@@ -22,6 +22,6 @@ Eine von mir geschätzte Lehrerin hat gesagt: wenn der nicht selbst gewählte, a
 
 Ich unterscheide an dieser Stelle zwischen stressenden gesellschaftlich-politischen Bedingungen, die niemand im Alleingang wegoptimieren kann und Bedingungen, die tatsächlich von mir steuerbar sind. 
 
-Im Traum und im Wachzustand nicht mehr gegen Übermächte zu kämpfen ist immer noch eine eher neue Erfahrung. In meinem Schlafkörper scheint sich die Gewissheit auszubreiten, gut aufgehoben zu sein, obwohl diese Welt kein sicherer Ort ist. Ich finds nicht langweilig. Ich hab Lust auf mehr von diesem Frieden.
+Im Traum und im Wachzustand nicht mehr gegen Übermächte zu kämpfen ist immer noch eine eher neue Erfahrung für mich. In meinem Schlafkörper scheint sich die Gewissheit auszubreiten, gut aufgehoben zu sein, obwohl diese Welt kein sicherer Ort ist. Ich finds nicht langweilig. Ich hab Lust auf mehr von diesem Frieden.
 
 Die basslila Rosen sind jetzt aufgegangen. Ich hatte im Laden an der Hauptstraße kurz Zweifel an ihnen. Geschlossene Rosen sehen immer so hart konservativ aus. Aber nach 48 Stunden in lauwarmen Wasser: Rokoko. Sehr exaltiert und aufgeklappt bis zum grünen Stengel.
