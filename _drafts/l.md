@@ -3,7 +3,7 @@ date: 2023-03-04 16:07:59 +0100
 title: Unter der Woche
 
 ---
-Ich mag das abendliche Tschilpen der Vögel, ihre kleine gesteigerte Gesprächigkeit bevor sie auf einmal nicht mehr können und einschlafen. Es reihen sich ein paar Nächte aneinander, in denen die Sichel gut zu sehen ist, dann zwei Tage Nebel und eine darin erahnbare Sonne kurz bevor sie untergeht. 
+Ich mag das abendliche Tschilpen der Vögel, ihre gesteigerte Gesprächigkeit bevor sie einschlafen. Es reihen sich ein paar Nächte aneinander, in denen die Sichel gut zu sehen ist, dann zwei Tage Nebel und eine darin erahnbare Sonne kurz bevor sie untergeht. 
 
 ![](/uploads/nacht-1.jpg)
 
