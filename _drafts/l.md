@@ -24,4 +24,4 @@ Ich unterscheide an dieser Stelle zwischen stressenden gesellschaftlich-politisc
 
 Im Traum und im Wachzustand nicht mehr gegen Übermächte zu kämpfen ist immer noch eine eher neue Erfahrung für mich. In meinem Schlafkörper scheint sich die Gewissheit auszubreiten, gut aufgehoben zu sein, obwohl diese Welt kein sicherer Ort ist. Ich finds nicht langweilig. Es ist nur ungewohnt, erholt und unbelastet in den Tag zu starten.
 
-Die basslila Rosen sind jetzt aufgegangen. Ich hatte im Laden an der Hauptstraße ja noch kurz Zweifel an ihnen. Geschlossene Rosen sehen immer so hart konservativ aus. Aber nach 24 Stunden in lauwarmen Wasser: Rokoko.
+Die basslila Rosen sind jetzt aufgegangen. Ich hatte im Laden an der Hauptstraße kurz Zweifel an ihnen. Geschlossene Rosen sehen immer so hart konservativ aus. Aber nach 48 Stunden in lauwarmen Wasser: Rokoko. Sehr exaltiert und aufgeklappt bis zum grünen Stengel.
