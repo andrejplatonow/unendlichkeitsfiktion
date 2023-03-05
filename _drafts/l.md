@@ -3,7 +3,7 @@ date: 2023-03-04 16:07:59 +0100
 title: Unter der Woche
 
 ---
-Ich mag das abendliche Tschilpen der Vögel, ihre kleine Gesprächigkeit bevor sie einschlafen. Es reihen sich ein paar Nächte aneinander, in denen die Sichel gut zu sehen ist, dann zwei Tage Nebel und eine darin erahnbare Sonne kurz bevor sie untergeht.
+Ich mag das abendliche Tschilpen der Vögel, ihre für etwa 30 Minuten gesteigerte Gesprächigkeit bevor sie einschlafen. Es reihen sich ein paar Nächte aneinander, in denen die Sichel gut zu sehen ist, dann zwei Tage Nebel und eine darin erahnbare Sonne kurz bevor sie untergeht.
 
 ![](/uploads/nacht-1.jpg)
 
@@ -16,8 +16,8 @@ Zurück in der Institution fallen alle drei Zimmerkolleginnen krankheitsbedingt 
 Am Freitag ist die Klimademo, aber mir geht es nicht gut und ich muss zwei Tage im Bett liegen. Nebenher lerne ich und träume im Anschluss, dass jemand bipolar Typ II ist und mir seine Symptome ins Ohr sagt. Worauf ich erwidere: Ja, das sind Kennzeichen einer Hypomanie. Sie sind vermutlich bipolar Typ II.  
 Ohne Witz, so flach und harmlos sind meine Träume mittlerweile. Einfach die Wiederholung des Gelernten. Als würde ich meinem Gehirn dabei zusehen, wie es den Gang runter zum Langzeitgedächtnis läuft, den Tagesinput darin archiviert, zurück kommt und "fertig" ruft.
 
-Ich habe bis vor etwa drei Jahren immer fürchterlich geträumt. Krieg, Neonazis, nackte unterernährte Babys, verwundete Freunde, Ringkämpfe mit Menschen, die mir physisch überlegen sind, schwarze Löcher, die mich schlucken. Einmal musste ich Alexej Nawalni in einer Altbauwohnung im Münchner Westend verstecken und häufig Auto fahren in einem Auto ohne Bremsen. 
+Ich habe bis vor etwa drei Jahren immer fürchterlich geträumt. Krieg, Neonazis, nackte unterernährte Babys, verwundete Freunde, Ringkämpfe mit Menschen, die mir physisch überlegen sind, schwarze Löcher, die mich schlucken. Einmal musste ich Alexej Nawalni in einer Altbauwohnung im Münchner Westend verstecken und häufig Auto fahren in einem Auto ohne Bremsen.
 
-Eine geschätzte Lehrerin von mir hat mal gesagt, wenn der nicht selbst gewählte, aber doch von uns selbst aufrechterhaltene Stress, einmal nachlässt oder gar aufhört, wird uns die darauf folgende Stille komisch vorkommen. Vielleicht auch langweilig. Nach mehreren Jahrzehnten Adrenalin und Haltlosigkeit fühlt Langsamerwerden oder Stille nicht gleich nach Frieden an. 
+Eine geschätzte Lehrerin von mir hat mal gesagt, wenn der nicht selbst gewählte, aber doch von uns selbst aufrechterhaltene Stress, einmal nachlässt oder gar aufhört, wird uns die darauf folgende Stille komisch vorkommen. Vielleicht auch langweilig. Nach mehreren Jahrzehnten Adrenalin und Haltlosigkeit fühlt Langsamerwerden oder Stille nicht gleich nach Frieden an.
 
-Ich unterscheide an dieser Stelle zwischen stressenden gesellschaftlich-politischen Bedingungen, die niemand im Alleingang wegoptimieren kann und Bedingungen, die tatsächlich von mir steuerbar sind. Erholsam zu schlafen und nicht mehr gegen Übermächte zu kämpfen ist für mich immer noch eine eher neue Erfahrung. Ich habe viel sortiert, emotional und körperlich prozessiert, ehe sich in mir die Gewissheit ausbreitete, gut aufgehoben und voller Zuneigung für mich zu sein, obwohl diese Welt kein sicherer Ort ist. 
+Ich unterscheide an dieser Stelle zwischen stressenden gesellschaftlich-politischen Bedingungen, die niemand im Alleingang wegoptimieren kann und Bedingungen, die tatsächlich von mir steuerbar sind. Erholsam zu schlafen und nicht mehr gegen Übermächte zu kämpfen ist für mich immer noch eine eher neue Erfahrung. Ich habe viel sortiert, emotional und körperlich prozessiert, ehe sich in mir die Gewissheit ausbreitete, gut aufgehoben und voller Zuneigung für mich zu sein, obwohl diese Welt kein sicherer Ort ist.
