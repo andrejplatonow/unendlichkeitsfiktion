@@ -7,7 +7,7 @@ Jetzt wo der Winter aufhört stehe ich manchmal bei 7 Grad und temporärem Sonne
 
 So sollten wir sie spielen, die 1. Szene von Wedekinds Frühlings Erwachen, auf einer kleinen Probebühne hinter der Autowerkstatt in der zum damaligen Zeitpunkt noch nicht luxussanierten Wohnsiedlung etwas außerhalb der Münchner Innenstadt. 3 Mädchen, reglos stehend, Gesicher frontal zum Publikum, abgerissen, ausgemergelt, in die Sonne blinzelnd nach langer Dunkelheit, herausgekommen auf der anderen Seite des Winters, 14 Jahre alt, dumpf und bereit ins Dasein zu treten, Text abzuladen, es geht um Jungs.
 
-Das Stück beginnt eigentlich anders, doch der Regisseur hielt diesen Anfang für besser, ich konnte ihm da folgen.
+Das Stück beginnt eigentlich anders, doch der Regisseur hielt diesen Anfang für besser. Ich konnte ihm da folgen.
 
 Am Ende der Woche ist Streik. Es wird skandiert, gefordert und gebuht, wenn von dem lächerlichen Entgegenkommen unseres Arbeitgebers die Rede ist. Aus meiner Abteilung streikt nur eine weitere Kollegin außer mir. Die meisten gehen an dem Tag arbeiten, etliche mit dem Argument, sie hätten ja die besser bezahlten Jobs innerhalb der Institution und es wäre ihnen daher unangenehm, für mehr Gehalt auf die Straße zu gehen. Ich finde, da liegt ein Denkfehler zu Grunde. Als Streikende streike ich nicht für mich allein, sondern für eine gesamte Branche mit mehreren Hunderttausend Mitarbeitenden, viele davon in sogenannten systemrelevanten Berufen. Eben diese systemrelevanten Berufstätigen können sich mittlerweile die Mieten in dieser Stadt nicht mehr leisten und pendeln morgens um 4:30 Uhr aus abgelegenen Ortschaften rein, um ihre Frühdienste in Krankenhäusern und Einrichtungen antreten zu können. 
 
