@@ -3,7 +3,7 @@ date: 2023-03-09 20:29:34 +0100
 title: Wedekind
 
 ---
-Es stürmt seit drei Tagen und Nächten. Ich weiß nicht, wie das Leute machen, die an Küsten leben. Den ganzen Tag Wind? Wie soll man da zur Ruhe kommen? Ich hab gehört, dass Erziehern, Landwirtinnen und Pflegerinnen von demenzkranken Menschen das Phänomen bekannt ist. Ab einer gewissen Windstärke drehen die Anvertrauten ab. Die allgemeine Schusseligkeit, Gereiztheit und Bereitschaft, lang aufgesparte Emotionen umgebremst in die Gruppe zu kanalisieren springt wetterbedingt auf ein Monatshoch, am Abend liegen alle heulend und zerstritten im Bett
+Es stürmt seit drei Tagen und Nächten. Ich weiß nicht, wie das Leute machen, die an Küsten leben. Den ganzen Tag Wind? Wie soll man da zur Ruhe kommen? Ich hab mal jemand sagen hören, dass Erziehern, Landwirtinnen und Pflegerinnen von demenzkranken Menschen das Phänomen bekannt ist. Ab einer gewissen Windstärke drehen die Anvertrauten ab. Die allgemeine Schusseligkeit, Gereiztheit und Bereitschaft, lang aufgesparte Emotionen umgebremst in die Gruppe zu kanalisieren, springt wetterbedingt auf ein Monatshoch, pädagogische Interventionsversuche schlagen fehl, am Abend liegen alle heulend und zerstritten im Bett. 
 
 Jetzt wo der Winter aufhört stehe ich manchmal bei 7 Grad und temporärem Sonnenschein an eine Hauswand gedrückt oder in der Glaseinhausung einer Trambahnstation oder an einem Feldrand in der immer noch kahlen, schlammgrauen, ausharrenden Landschaft und verorte mich in diesem März, als Davongekommene, als Durchgekommene. 
 
