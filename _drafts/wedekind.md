@@ -12,7 +12,7 @@ Es stürmt vier Tage und Nächte. Ich weiß nicht, wie das Leute machen, die an 
 
 Am Samstag feiern wir den Geburtstag eines Freundes. Wir sitzen in einem eher dunklen Raum auf einer Decke am Boden und essen Suppe aus Müslischalen. Es gibt 9 Flaschen Bier, die sich 15 Leute teilen, verklebte Salzstreuer und eine recht spontan zusammen gekommene Gästerunde, darunter Menschen, die ich zum ersten Mal sehe. Die Feierlichkeiten in letzter Zeit kehren optisch und choreographisch zunehmend zurück in die WGs, aus denen sie ursprünglich entwichen sind. Es fehlen nur noch tropfende Kerzen auf unter Wachs kaum mehr zu erkennenden Weinflaschen und verwurschteltes Bettzeug in der Ecke.
 
-Ich weiß nicht, wann der Trend umgekehrt ist und sich auf den Heimweg gemacht hat. Soweit ich weiß, saßen wir noch vor Kurzem allwöchentlich gepflegt an anspruchsvoll ausgeleuchteten Tafeln mit einheitlichem Geschirr, in unserem Schoß Leinenservietten, auf den Lippen teurer Alkohol, im Ofen libanesische Cuisine, für die jemand stundenlang in der Küche gestanden hatte.
+Ich weiß nicht, wann der Trend umgekehrt ist und sich auf den Heimweg gemacht hat. Vor Kurzem noch saßen wir allwöchentlich gepflegt an anspruchsvoll ausgeleuchteten Tafeln mit einheitlichem Geschirr, in unserem Schoß Leinenservietten, auf den Lippen teurer Alkohol, im Ofen libanesische Cuisine, für die jemand stundenlang in der Küche gestanden hatte.
 
 Am Samstag jedenfalls ist das Essen zwar da, spielt aber keine tragende Rolle, der hereingebrachte Kuchen wird beklatscht, der Freund besungen und dann die Playlist angeschmissen. Der Rest ist Tanz und in dunklen Winkeln stehende Menschen, vertieft in irgendwas, manchmal ineinander.
 
