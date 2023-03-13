@@ -1,5 +1,5 @@
 ---
-date: 2023-03-10 22:30:34 +0100
+date: 2023-03-13 11:31:34 +0100
 title: Wedekind
 
 ---
@@ -14,4 +14,4 @@ Am Samstag feiern wir den Geburtstag eines Freundes. Wir sitzen in einem eher du
 
 Ich weiß nicht, wann der Trend umgekehrt ist und sich auf den Heimweg gemacht hat. Vor Kurzem noch saßen wir allwöchentlich gepflegt an anspruchsvoll ausgeleuchteten Tafeln mit einheitlichem Geschirr, in unserem Schoß Leinenservietten, auf den Lippen teurer Alkohol, im Ofen libanesische Cuisine, für die jemand stundenlang in der Küche gestanden hatte.
 
-Am Samstag jedenfalls ist das Essen zwar da, spielt aber keine tragende Rolle, der hereingebrachte Kuchen wird beklatscht, der Freund besungen und dann die Playlist angeschmissen. Der Rest ist Tanz und in dunklen Winkeln stehende Menschen, vertieft in irgendwas, manchmal ineinander. Es ist ein gutes Fest, um wieder Haut, Blut und Knochen zu werden, nachdem man eine Woche lang meinte, es ginge darum, Resultate zu erzielen. Ich freue mich wie ein Kind, als ich gegen Ende des Abends mit einer kleinen Gruppe Tanzender in synchrone Bewegungen verfalle, darunter Menschen, die ich eigentlich nicht kenne, aber in dem Moment doch erkenne.
+Am Samstag jedenfalls ist das Essen zwar da, spielt aber keine tragende Rolle, der hereingebrachte Kuchen wird beklatscht, der Freund besungen und dann die Playlist angeschmissen. Der Rest ist Tanz und in dunklen Winkeln stehende Menschen, vertieft in irgendwas, manchmal ineinander. Es ist ein gutes Fest, um wieder Haut, Blut und Knochen zu werden, nachdem man eine Woche lang meinte, es ginge darum, Resultate zu erzielen. Ich freue mich wie ein Kind, als ich gegen Ende des Abends mit ein paar Tanzenden in synchrone Bewegungen verfalle, darunter Menschen, die ich eigentlich nicht kenne, aber in dem Moment doch erkenne.
