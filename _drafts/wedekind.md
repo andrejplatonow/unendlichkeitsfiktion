@@ -1,6 +1,6 @@
 ---
 date: 2023-03-13 11:31:34 +0100
-title: Wedekind
+title: W
 
 ---
 Jetzt wo der Winter aufhört stehe ich manchmal bei 13 Grad und temporärem Sonnenschein an eine Hauswand gedrückt oder in der Glaseinhausung einer Trambahnstation oder an einem Feldrand in der immer noch kahlen, schlammgrauen, ausharrenden Landschaft und verorte mich in diesem März, als Davongekommene, als Durchgekommene. So sollten wir sie spielen, die 1. Szene von Wedekinds Frühlings Erwachen, auf einer kleinen Probebühne hinter der Autowerkstatt in der zum damaligen Zeitpunkt noch nicht luxussanierten Wohnsiedlung etwas außerhalb der Münchner Innenstadt. 3 Mädchen, reglos stehend, Gesicher frontal zum Publikum, abgerissen, ausgemergelt, in die Sonne blinzelnd nach langer Dunkelheit, herausgekommen auf der anderen Seite des Winters, 14 Jahre alt, dumpf, bereit ins Dasein zu treten, Text abzuladen - es geht um Jungs.  
