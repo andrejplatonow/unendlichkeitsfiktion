@@ -1,6 +1,6 @@
 ---
 date: 2023-03-13 11:31:34 +0100
-title: "13"
+title: 3 Steine
 
 ---
 Es stürmt vier Tage und Nächte. Ich weiß nicht, wie das Leute machen, die an Küsten leben. Den ganzen Tag Wind? Wie soll man da zur Ruhe kommen. Ich hab mal jemand sagen hören, Erziehern, Landwirtinnen und Pflegerinnen von demenzkranken Menschen sei das Phänomen bekannt. Ab einer gewissen Windstärke drehen die Anvertrauten ab. Die allgemeine Schusseligkeit, Gereiztheit und Bereitschaft, lang aufgesparte Emotionen umgebremst in die Gruppe zu kanalisieren, springt wetterbedingt auf ein Monatshoch, pädagogische Interventionsversuche schlagen fehl, am Abend liegen alle heulend und zerstritten im Bett. Es ist so lächerlich und beschränkt, ein Mensch zu sein. Man ist einfach allem ausgeliefert. 
