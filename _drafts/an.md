@@ -13,3 +13,5 @@ Den anhaltenden Regen versuche ich mir mit dem dringend nötigen Steigen des Gru
 
 Auf dem Weg zu Freunden, die an dem Abend Halloumiburger machen werden, höre ich Musik der frühen Nullerjahre und sitze zufrieden in Öffentlichen Verkehrsmitteln, in denen sich ausgehbereit angezogene Menschen mittels Lautstärke, Lachwilligkeit und über Sitze hinweggerufene Aufforderungen, mit ihrem Wochenendkörper vertraut machen.   
 Ich mag es, neue Freunde zu finden, zu begreifen, wie sie sind, was da los ist, in was sie sich reinschrauben, womit sie glänzen und an auf welche Weise sie in sich hängen bleiben. Genauso bereichernd ist es, alte Freunde kennenzulernen. Noch mal von vorn zu ertasten, was das eigentlich für Wesen sind, wie sie reingespült wurden in diese Welt, worüber sie sich seit Jahrzehnten den Kopf zerbrechen und wie sie ihre Gefühle inkarnieren in Gegenstände, Handlungen, Wohnungen und Politik.
+
+Auf Amazon ein Set Ostereierfarben bestellt. Sobald das Kapitel, das mich inhaltlich nicht reizt, aufgenommen, verstanden und sicher verwahrt ist, darf ich Eier bemalen. 
