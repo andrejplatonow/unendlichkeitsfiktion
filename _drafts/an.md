@@ -1,6 +1,6 @@
 ---
-date: 2023-04-01 20:25:39 +0200
-title: An
+date: 2023-04-01 16:24:39 +0200
+title: April
 
 ---
 An drei bis vier Tagen im Jahr ist die Arbeit in der Institution schlimm. Immer im März, wenn das Budget auf hunderte bestehende und hunderte neue hinzugekommene Positionen verteilt werden muss und ich dafür nichts zur Verfügung habe, als veraltete Software, einen Taschenrechner und zehn ausgedruckte Exceltabellen, die ich mit Tesafilm zu einem etwa 2 qm² großen Gesamteindruck zusammenklebe. In die Aufgabe wurde ich hineingetrickst. Von allen Beteiligten. Von dem Kollegen, der mich mit einer zuckersüßen Email angeworben hatte, von der direkten Vorgesetzten, die nicht wusste, um was genau es geht und von der indirekten Vorgesetzten, die beim Einstellungsgespräch von leicht zu verrichtenden Tätigkeiten in der Etatansetzung sprach. Nur mein Vorgänger war ehrlich und sagte bei seinem Abschied und nachdem ich unterschrieben hatte: Ich muss Sie warnen. Auch wenn Ihnen keine Fehler unterlaufen, wird das Programm Fehler melden. Wenn Sie dann nicht improvisieren, kann hier innerhalb von einer Woche niemand mehr handeln.   
@@ -11,4 +11,4 @@ Ich habe also in den letzten Tagen zuerst alles korrekt eingegeben und Dutzende 
 
 Den anhaltenden Regen versuche ich mir mit dem dringend nötigen Steigen des Grundwasserpegels schönzureden, dem Lernen weiche ich aus, dafür sind jetzt zwei Bäume beschnitten, die Silikonfuge des Badewannenrands herausgekratzt, gesäubert und neu verfugt, der im Winter eingefrorene und abgebrochene Außenwasserhahn entfernt, Dichtungsband bestellt, ein Rucksack getestet und für untragbar befunden (und damit 11 Monate Rucksack-Recherche einen Schritt voran gebracht), die Kommode nach Feuchtigkeitsunfall abgeschliffen, geölt und aus Schafwolle Schlüsselanhänger für Zweit- und Drittschlüssel geflochten. Heute Morgen habe ich noch erwogen, aus Naturmaterialien Ostereierfarbe herzustellen, ehe ich einsah, dass ich irgendwann wieder lernen muss und mich nicht ewig in einem Fantasieheimwerkerleben verstecken kann, nur weil mich das nächste Kapitel inhaltlich nicht reizt. 
 
-Auf dem Weg zu Freunden, die an diesem Abend Halloumiburger
+Auf dem Weg zu Freunden, die an diesem Abend Halloumiburger machen werden, höre ich Musik der frühen Nullerjahre
