@@ -18,6 +18,7 @@ fields:
   default: now
 pages:
 - _pages/impressum.md
+- _posts/14.md
 - _posts/2019-03-23-am-andern-tag..md
 - _posts/2019-03-25-der-erste-morgen.md
 - _posts/2020-05-27-baustelle.md
