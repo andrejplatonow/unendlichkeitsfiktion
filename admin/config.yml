@@ -2,8 +2,7 @@ backend:
   name: 'github'
   repo: 'andrejplatonow/unendlichkeitsfiktion'
   branch: 'main' # Branch to update (optional; defaults to main)
-  # site_domain: ''
-  site_id : 'stellar-pithivier-ef555e.netlify.app'
+  site_domain : 'stellar-pithivier-ef555e.netlify.app'
   
 media_folder: 'uploads'
 
