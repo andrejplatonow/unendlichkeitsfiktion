@@ -1,7 +1,7 @@
 backend:
   name: github
   repo: andrejplatonow/unendlichkeitsfiktion
-  branch: main
+  branch: master
   base_url: https://sveltia-cms-auth.gsg433633860.workers.dev
   
 media_folder: 'uploads'
