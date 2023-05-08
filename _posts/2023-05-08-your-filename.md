@@ -19,3 +19,5 @@ Ich denke, erst nach etwa zwei Jahrzehnten auf dem Erdball, hängt man wirklich 
 Es muss manchmal kaum auszuhalten sein. Ein Kind zu haben und es gleichzeitig nicht zu haben.
 
 Ein Buch, das seit Jahren vergriffen und in keinem Antiquariat unter 80 Euro zu erstehen ist, wird von einem älteren Freund aufwändig recherchiert und in einem österreichischen Depot ausfindig gemacht. Er schickt mir alle Daten zum Abgleich, übernimmt die Bestellung und Lieferung an eine Freundin in Tirol, die es mir bei Gelegenheit mitbringt. Es ist ein großes Plus Freunde zu haben, die bereits in Rente sind und gerne Detektiv spielen.
+
+Foto: Joe MiGo/ Wikipedia
