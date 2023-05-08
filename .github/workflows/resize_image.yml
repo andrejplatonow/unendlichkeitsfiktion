@@ -18,7 +18,7 @@ jobs:
         uses: actions/checkout@master
       - name: Compress Images
         id: resize-images
-        uses: petems/image-resizer-gh-action@master
+        uses: andrejplatonow/image-resizer-gh-action@master
         with:
           target: uploads/ # directory to look for images in
           widthLimit: 636 # max width to check
@@ -48,5 +48,4 @@ jobs:
             **Hello, I resized images for you!**:
             ${{steps.csv-table-output.outputs.markdown-table}}
           repo-token: ${{ secrets.GITHUB_TOKEN }}
-          repo-token-user-login: 'github-actions[bot]' # The user.login for temporary GitHub tokens
           allow-repeats: true
