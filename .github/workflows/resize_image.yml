@@ -25,7 +25,7 @@ jobs:
           heightLimit: 3000 # max height to check          
           dimensions: 636x3000 # parameter to change size, passed to mogrify as ``
       - name: Commit changes
-        uses: EndBug/add-and-commit
+        uses: EndBug/add-and-commit@master
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
         with:
@@ -42,7 +42,7 @@ jobs:
         id: csv-table-output
         with:
           csvinput: ${{steps.resize-images.outputs.csv_images_changed}}
-      - uses: mshick/add-pr-comment@v1
+      - uses: mshick/add-pr-comment@master
         with:
           message: |
             **Hello, I resized images for you!**:
