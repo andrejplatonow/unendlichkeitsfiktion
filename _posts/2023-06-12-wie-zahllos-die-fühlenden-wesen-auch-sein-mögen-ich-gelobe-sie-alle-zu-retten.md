@@ -3,11 +3,9 @@ title: Wie zahllos die fühlenden Wesen auch sein mögen, ich gelobe, sie alle z
   retten.
 date: 2023-06-12T20:18:33.552Z
 ---
-
-
 ![Akelei1](/uploads/akelei-1.jpg "Akelei1")
 
-Die Wohnung verschmutzt zusehends, was ein gutes Zeichen ist und den Anfang des Sommers markiert. Möbelstücke und Flächen sind ab jetzt nur noch dafür da, benutzt zu werden und dürfen frühestens im Herbst wieder mit Pflege rechnen. Auf den Böden treten sich Essensreste der letzten und vorletzten Zusammenkunft mit Freunden fest, die Fenster erblinden unter Pollenstaub und Fingerabdrücken, eigentlich weiße Waschbecken nehmen einen Farbton aus dem Sepiaspektrum an. Ich will mich nicht länger in Innenräumen aufhalten, als es braucht, um den nassen Badeanzug auszuwringen, aber dann sitze ich doch zwei Stunden an den Büchern und lerne. Es bleibt sogar was hängen, aber es hängt anders als im Winter, es wird bedrängt und manchmal erdrückt von dem, was noch alles ist.
+Die Wohnung verschmutzt zusehends, was ein gutes Zeichen ist und den Anfang des Sommers markiert. Möbelstücke und Flächen sind ab jetzt nur noch dafür da, benutzt zu werden und dürfen frühestens im Herbst wieder mit Pflege rechnen. Auf dem Boden treten sich Essensreste der letzten und vorletzten Zusammenkunft mit Freunden fest, die Fenster erblinden unter Pollenstaub und Fingerabdrücken, eigentlich weiße Waschbecken nehmen einen Farbton aus dem Sepiaspektrum an. Ich will mich nicht länger in Innenräumen aufhalten, als es braucht, um den nassen Badeanzug auszuwringen, aber dann sitze ich doch zwei Stunden an den Büchern und lerne. Es bleibt sogar was hängen, aber es hängt anders als im Winter, es wird bedrängt und manchmal erdrückt von dem, was noch alles ist.
 
 ![Akelei2](/uploads/akelei-2.jpg "Akelei2")
 
