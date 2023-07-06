@@ -12,7 +12,7 @@ Am Donnerstag liegt ein toter Vogel vor der Treppe. Wo seine Augen waren, sind d
 
 ![](/uploads/toter-vogel.jpg)
 
-In der Institution stehen die Bürotüren zum Gang hin offen, was ungewöhnlich ist, hier arbeiten viele Menschen, die Wert legen auf Rückzug und Konzentration. Es bedarf schon eines Tages mit 33 Grad im Schatten, um die Kolleg*innen dazu zu veranlassen, ihre heilige Ruhe gegen ein bisschen Durchzug zu tauschen. Während ich über der griechischen Umlautschrift brüte, höre ich es im Nachbarzimmer leise sprechen, verhalten lachen und noch ein Büro weiter, wie jemand eine Stunde lang der Hospitantin erklärt, welche Schnittstellenproblematik uns zu der umständlichen Statistikaufbereitung zwingt, die wir hier seit Jahren praktizieren.
+In der Institution stehen die Bürotüren zum Gang hin offen, was ungewöhnlich ist, hier arbeiten viele Menschen, die Wert legen auf Rückzug und Konzentration. Es bedarf schon eines Tages mit 33 Grad im Schatten, um die Kolleg*innen dazu zu veranlassen, ihre heilige Ruhe gegen ein bisschen Durchzug zu tauschen. Während ich über der griechischen Lautschrift brüte, höre ich es im Nachbarzimmer leise sprechen, verhalten lachen und noch ein Büro weiter, wie jemand eine Stunde lang der Hospitantin erklärt, welche Schnittstellenproblematik uns zu der umständlichen Statistikaufbereitung zwingt, die wir hier seit Jahren praktizieren.
 
 ![](/uploads/transliteration.jpg)
 
