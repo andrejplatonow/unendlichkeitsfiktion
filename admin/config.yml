@@ -19,6 +19,6 @@ collections:
       - { label: 'Body', name: 'body', widget: 'markdown' }
   - name: 'blogroll' # Used in routes, e.g., /admin/collections/blog
     label: 'Blogroll' # Used in the UI
-    files: '_data/navigation.yml' # The path to the folder where the documents are stored
+    files: ['_data/navigation.yml]
     fields: # The fields for each document, usually in front matter
       - { label: 'content', name: 'content', widget: 'text' }
