@@ -24,4 +24,4 @@ collections:
         name: 'blogroll'
         file: '_data/navigation.yml'
         fields:
-          - {label: 'blogroll', name: 'blogroll', widget: text}
+          - {label: 'children', name: 'children', widget: text}
