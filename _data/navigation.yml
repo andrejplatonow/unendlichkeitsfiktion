@@ -12,8 +12,6 @@ blogroll:
         url: http://goncourt.net/Blog/
       - title: Hotel
         url: http://hotelmama.it/
-      - title: Istrici
-        url: https://istrici.wordpress.com/
       - title: Jochen Metzger
         url: https://jochen-metzger.de/impressum/
       - title: Kraulquappe
@@ -30,3 +28,7 @@ blogroll:
         url: https://spreadrandomthoughts.wordpress.com/
       - title: Wieselblog
         url: https://wieselblog.wordpress.com/
+      - url: https://www.ligneclaire.de/
+        title: ligneclaire
+      - url: https://vague.antville.org/
+        title: vague
