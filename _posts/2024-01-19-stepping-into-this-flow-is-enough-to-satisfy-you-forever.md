@@ -10,7 +10,7 @@ Der Mann hat Schmerzen, das ist sichtbar, manchmal zittert sein Mund, er hält d
 
 Faith does not push the river. Because faith is able to trust that there is a river. The river is flowing. We are in it.
 
-Ich bleibe bei ihm, während der Krampf zunimmt, einmal, zweimal, eine Kontraktion folgt der anderen. An uns ziehen Wale vorbei, Rochen, Plankton, ozeanisches Leuchten. Ich weiß nicht, was für ein Meeresbewohner er ist, wo er sich die Schmerzen eingefangen hat, an welcher Stelle er aufgerissen ist, aber ich kann wahrnehmen, wie die akuten Minuten abebben und zusammenlaufen in eine tragbare Stille. Er holt Luft und richtet sich auf. Er ist sehr erschöpft. Als er wieder gleichmäßig atmen kann, löse ich die Hand von seinem Rücken und sehe ihm in die Augen. Er nickt noch einmal, dann schwimme ich weiter.
+Ich bleibe bei ihm, während der Krampf zunimmt, einmal, zweimal, eine Kontraktion folgt der anderen. An uns ziehen Wale vorbei, Rochen, Plankton, ozeanisches Leuchten. Ich weiß nicht, was für ein Meeresbewohner er ist, wo er sich die Schmerzen eingefangen hat, an welcher Stelle er aufgerissen ist, aber ich kann wahrnehmen, wie die akuten Minuten abebben und zusammenlaufen in eine tragbare Stille. Er holt Luft und richtet sich auf. Er ist sehr erschöpft. Als er wieder gleichmäßig atmen kann, löse ich die Hand von seinem Rücken und sehe ihm in die Augen. Er nickt noch einmal, ich schwimme weiter.
 
 ![](/uploads/quallen-rosa.jpeg)
 
