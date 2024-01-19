@@ -26,5 +26,4 @@ Ich bleibe bei ihm, während der Krampf zunimmt, einmal, zweimal, eine Kontrakti
 
 
 
-Foto 1: Panthermedia/Mcalec\
-Foto 2: best-wallpaper.net
+Foto1: Panthermedia/Mcalec, Foto2: best-wallpaper.net
