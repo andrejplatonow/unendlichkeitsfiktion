@@ -2,7 +2,7 @@
 title: durch mich hindurch
 date: 2024-04-03T20:18:11.967Z
 ---
-Samstag sitze ich in einer österlich leeren S-bahn, höre sentimentale rumänische Musik und notiere Ideen für einen Workshop mit Kolleg*innen später am Tag. Es ist warm und es wird noch wärmer werden. Ich bin falsch angezogen, übermüdet und trage zu viele Bücher in meinem Rucksack - der krachend blaue Himmel aber und die auf dem Asphalt klebenden rosa Blüten - es ist real und plakativ Frühling und kein Kummer wird mir diesen Tag trüben.\
+Samstag sitze ich in einer österlich leeren S-Bahn, höre sentimentale rumänische Musik und notiere Ideen für einen Workshop mit Kolleg*innen später am Tag. Es ist warm und es wird noch wärmer werden. Ich bin falsch angezogen, übermüdet und trage zu viele Bücher in meinem Rucksack - der krachend blaue Himmel aber und die auf dem Asphalt klebenden rosa Blüten - es ist real und plakativ Frühling und kein Kummer wird mir diesen Tag trüben.\
 \
 Wir arbeiten eine Weile in der Praxis eines Freundes, ehe wir uns mit Kaffeetassen auf den Bordstein zur Straße raus setzen, blinzelnd in all das Licht von allen Seiten. Es ist, obwohl man ja schon eine Zeit lang auf der Erde verweilt und weiß, wie Jahreszeiten gehen, erneut verblüffend mit welchem Genuss es sich sitzen lässt auf einem Bordstein ab Ende März in dieser Stadt. Wie die winterliche Verrohung und Zusammengefaltetheit der Gedanken einem weiter gestreuten Sichtfeld weicht, sich Vorübergehende anplaudern lassen oder direkt dazusetzen, eine Schicht Kleidung nach der anderen ausziehend. Ach, unsere fabelhaften Körper. Da sind sie wieder.\
 \
