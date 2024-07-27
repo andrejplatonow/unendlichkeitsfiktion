@@ -24,9 +24,7 @@ Pünktlich gezahlt hat der Eliteveranstalter übrigens nie. Einmal musste ich dr
 \
 Weiterhin in der Woche jeden Tag zwei Gewitter. Die Hagebutte, nach dem Sturm im letzten Jahr mit Spanngurten und Stöcken stabilisiert, kracht wieder um. Diesmal final: Wurzel raus, aufgeworfene Erdbrocken, das gesamte Stamm- und Astwerk am Boden. Es wird eine Motorsäge aus dem Keller geholt und die Hagebutte verabschiedet. An der Leerstelle Flieder gepflanzt.\
 \
-An dem einen heißen Wochenende im Juli nach einem Seminar mit Kolleg*innen auf dem gepflasterten Innenhof eines Werkgebäudes gesessen, zwischen den Scherben und Kippen. Wir wären gern komfortabler gesessen, aber Stadt und Stunde gaben es nicht her. Musik aus dem Handy gehört, mitgesungen, dabei zugeschaut, wie sich zwei Menschen verlieben. Wenn doch immer Sommer wär.\
-\
-Ansonsten: wie es eine große, sehr heterogene Gruppe zusammenhält, fördert und voran bringt, begabte Lehrer*innen zu haben.\
+An dem einen heißen Wochenende im Juli nach einem Seminar mit Kolleginnen auf dem gepflasterten Innenhof eines Werkgebäudes gesessen, zwischen den Scherben und Kippen. Wir wären gern komfortabler gesessen, aber Stadt und Stunde gaben es nicht her. Musik aus dem Handy gehört, mitgesungen, dabei zugeschaut, wie sich zwei Menschen verlieben. Wenn doch immer Sommer wär.Ansonsten: wie es eine große, sehr heterogene Gruppe zusammenhält, fördert und voran bringt, begabte Lehrerinnen zu haben.\
 \
 Und der klaffende Unterschied zu solchen Lehrenden, denen der Job nicht liegt. Die in was anderem gut sind, aber dennoch lehren wollen. Warum? Wenn Geld keine Rolle spielt und andere Optionen zu Hauf vorhanden?\
 \
