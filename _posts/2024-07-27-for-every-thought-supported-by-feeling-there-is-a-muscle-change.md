@@ -2,7 +2,7 @@
 title: For every thought supported by feeling, there is a muscle change
 date: 2024-07-27T13:49:27.867Z
 ---
-An einen Donnerstagnachmittag sitze ich auf einem Balkon in den Bergen, schaue zum Karwendel. So lange war ich nicht mehr hier. Die Wäsche jeden Tag draußen trocknen. An ihr riechen, wie am Kelch einer Blume. Die ganze Umgebung geht in die Wäsche ein: Heu, Sonne, Kühe, Holz, Staub und Hibiskus.\
+An einen Donnerstagnachmittag sitze ich auf einem Balkon in den Bergen und schaue zum Karwendel. So lange war ich nicht mehr hier. Die Wäsche jeden Tag draußen trocknen. An ihr riechen, wie am Kelch einer Blume. Die ganze Umgebung geht in die Wäsche ein: Heu, Sonne, Kühe, Holz, Staub und Hibiskus.\
 \
 Ich schreite jetzt langsam durch mich hindurch. Auch meine Gefühle werden langsam, synchron zum Gehen in Zeitlupe. Die Verletzung am Fuß, dieser kleine gebrochene Knochen; so viel Kontrolle und Schnelligkeit hing daran. Ohne mein Wissen.\
 \
