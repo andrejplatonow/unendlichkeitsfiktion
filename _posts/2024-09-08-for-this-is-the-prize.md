@@ -2,7 +2,7 @@
 title: For this is the prize
 date: 2024-09-08T10:48:09.968Z
 ---
-Einen Nachmittag lang verbringe ich bei 30 Grad unter einem roten Sonnenschirm. Ich trinke Earl Grey in kleinen Schlucken, die Freunde Kaffee oder kaltes Wasser. Über den Feldern flimmert die Hitze, das bei der Heuernte vom Wagen herunter gefallene Gras trocknet auf den Kieswegen weiter. Wir schauen zwischen den Bergflanken in die Weite und erzählen uns die Ereignisse der letzten Wochen, auf dem Tisch steht Zucchinikuchen. Ich bin lange nicht mehr im Schatten eines solchen Schirms gesessen, wie ein Schlumpf unter dem Fliegenpilz.\
+Einen Nachmittag lang verbringe ich bei 30 Grad unter einem roten Sonnenschirm. Ich trinke Earl Grey in kleinen Schlucken, die Freunde Kaffee oder kaltes Wasser. Über den Feldern flimmert die Hitze, das bei der Heuernte vom Wagen herunter gefallene Gras trocknet auf den Kieswegen weiter. Wir schauen zwischen den Bergflanken in die Weite und erzählen uns die Ereignisse der letzten Wochen. Auf dem Tisch steht Zucchinikuchen mit Limettenguss. Ich bin lange nicht mehr im Schatten eines solchen Schirms gesessen, wie ein Schlumpf unter dem Fliegenpilz.\
 \
 In der Institution schnalzen innerhalb von fünf Tagen alle Projekte, die ich mühsam in Reihenfolge gebracht hatte, gleichzeitig zurück. Kaum ist das Gröbste durch, kommen Leute mit neuen Ideen = Mehrarbeit auf mich zu. Ich ertappe mich dabei, wie ich zu allem Nein sage, Zeug wegdelegiere und andere für zuständig erkläre. Das funktioniert erstaunlich gut. Habe ich es final doch noch gelernt.\
 \
