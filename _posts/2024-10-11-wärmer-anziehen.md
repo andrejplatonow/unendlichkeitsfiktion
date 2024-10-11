@@ -6,7 +6,6 @@ In den Tagen der Ankommens treffe ich eine Freundin in dem Séparée eines Lokal
 
 ![](/uploads/ko.jpg)
 
-\
 Viel Oktoberlicht in dieser Woche. Horizontal ins Gesicht scheinende Sonne, Abendspaziergänge im Pullover und an die warme Hauswand gedrückte Momente bevor es dunkel wird. Die Hirsche röhren aus dem Wald, es ist jetzt sehr dringlich, die Paarungswilligkeit auf dem Höhepunkt. Jedes Mal halte ich es erst für den Schrei einer Kuh, doch dann wird klar: so schreit keine Kuh.
 
 ![](/uploads/herbstlich1.jpg)
