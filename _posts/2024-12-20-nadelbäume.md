@@ -24,12 +24,4 @@ Dann treffe ich einen neuen Freund, einen vor wenigen Wochen aus San Francisco h
 \
 Das beschäftigt mich lange. Weil ich ja denke, dass nur Menschen südlich der Alpen schön langsam leben. Und ich mir gar nicht ausmalen will, wie furchtbar es woanders sein muss, wenn man München als erholsam langsam empfindet.
 
-*
-*
-*
-*
-*
-*
-*
-
 Eine Freundin macht Seifen mit fairtrade gehandelter Sheabutter und bringt die Seifen in einem schweren Koffer in die Stadt. Es ist einer der für mich wichtigen Dezemberhöhepunkte, wenn diese Lieferung eintrifft und es danach wochenlang im Badezimmer nach Rosmarin, Ginkgo und Bergamotte riecht.
