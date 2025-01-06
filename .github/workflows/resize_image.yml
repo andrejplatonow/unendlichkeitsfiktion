@@ -42,7 +42,7 @@ jobs:
         id: csv-table-output
         with:
           csvinput: ${{steps.resize-images.outputs.csv_images_changed}}
-      - uses: mshick/add-pr-comment@master
+      - uses: mshick/add-pr-comment@v2
         with:
           message: |
             **Hello, I resized images for you!**:
