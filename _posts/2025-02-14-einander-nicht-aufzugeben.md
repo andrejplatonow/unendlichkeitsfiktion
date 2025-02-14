@@ -12,7 +12,7 @@ Die Zenmeisterin spricht 30 Minuten vom Auflösen der Dualität. Ich möchte bei
 \
 Mein Ringen mit manchen meiner spirituellen Mitmenschen und ihrer nachvollziehbaren aber letztlich doch schädlichen Körperangst. Weltangst. Das hört nie auf, egal wo ich bin. Und ja, ich tue es gern und immer noch, weil ich eine Erwachsene wie mich gebraucht hätte, als ich achtzehn und spirituell sehr durcheinander war.\
 \
-Wobei. Ich als Achtzehnjährige durchaus Erwachsene kannte, die mich auf dem Boden der Tatsachen halten wollten, was ich rundheraus abgelehnt habe, weil:  langweilig, schwammig, moderat. Ich wollte durchbrennen. Das Mädchen, das ich war, hätte mit der Frau, die ich bin, nichts anfangen können.\
+Wobei. Ich als Achtzehnjährige durchaus Erwachsene kannte, die mich auf dem Boden der Tatsachen halten wollten, was ich rundheraus abgelehnt habe, weil: langweilig, schwammig, moderat. Ich wollte durchbrennen. Das Mädchen, das ich war, hätte mit der Frau, die ich bin, nichts anfangen können.\
 \
 Nachdem ich zwei Tage auf diesem Zen-Groll herumsitze, gehe ich zur Meisterin und sage es ihr. Wie fast immer, wenn ich Streitgespräche nicht in meinem Kopf, sondern mit der betreffenden Person real führe, endet es gut. Befriedigend. Ich bin sicher, wäre sie nicht eine in Alltag und Beziehungen so sattelfest verankerte Frau, könnte ich kein Zen von ihr lernen.\
 \
