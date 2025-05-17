@@ -30,7 +30,7 @@ Die Mondsichel Anfang Mai ist perfekt abgezirkelt von dem sie umgebenden schwarz
 
 you can take all the time you want to come into this body \[Heather Christie]
 
-Wenige Tage zuvor war eine Freundin damit rausgerückt, dass sie sich wieder das Leben hatte nehmen wollen. Sie wurde rechtzeitig gefunden, eingeliefert und einige Wochen behandelt. Ich höre ihrer Schilderung fast reglos zu und lediglich meine flache Atmung in den zwei Tagen danach klärt mich darüber auf, dass ich mich nicht daran gewöhnen werde, gleichgültig wie regelmäßig es bei ihr zu suizidalen Krisen kommt, und unabhängig davon, wie sehr ich versuche abzuschließen. Nicht mehr zu wollen, als da zu sein, wenn ich es kann.
+Wenige Tage zuvor war eine Freundin damit rausgerückt, dass sie sich wieder das Leben hatte nehmen wollen. Sie wurde rechtzeitig gefunden, eingeliefert und einige Wochen behandelt. Ich höre ihrer Schilderung fast reglos zu und lediglich meine flache Atmung in den zwei Tagen danach klärt mich darüber auf, dass ich mich nicht daran gewöhnen werde, gleichgültig wie regelmäßig es bei ihr zu suizidalen Krisen kommt, und unabhängig davon, wie sehr ich versuche abzuschließen. Nicht mehr zu wollen, als da zu sein mit ihr, wenn ich es kann.
 
 In der Institution stehen tiefgreifende strukturelle Veränderungen an, die Situation ist angespannt, ich verbringe häufig Zeit in Meetings mit absurd detaillierten Inhalten, zu denen ich nichts beitragen kann. Meine wiederholten Hinweise darauf werden gehört, man versichert, mich dennoch dabei haben zu wollen. Ich glaube, es geht um Beistand. Anders kann ich mir das nicht erklären.
 
