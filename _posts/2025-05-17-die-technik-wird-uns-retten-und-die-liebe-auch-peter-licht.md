@@ -34,7 +34,7 @@ Nur wenige Tage zuvor hatte sich eine Bekannte das Leben nehmen wollen. Sie wurd
 
 In der Institution stehen tiefgreifende strukturelle Veränderungen an, die Situation ist angespannt, ich verbringe häufig Zeit in Meetings mit absurd detaillierten Inhalten, zu denen ich nichts beitragen kann. Meine wiederholten Hinweise darauf werden gehört, man versichert, mich dennoch dabei haben zu wollen. Ich glaube, es geht um Beistand. Anders kann ich mir das nicht erklären.
 
-Zur Ablenkung und Stimmungsaufhellung hänge ich Kunstdrucke und Poster in meinem Büro auf, die umgehend als Gemeinschaft förderndes Moment in die Belegschaft hinein wirken, alle fünf Minuten bleibt jemand mit der Kaffeetasse in der Tür stehen, schielt rein und bittet um eine Führung durch die Galerie. Wir kommen wieder ins Gespräch und können ein bisschen lachen, manchmal sogar Scheiße schreien.
+Zur Ablenkung und Stimmungsaufhellung hänge ich Kunstdrucke und Poster in meinem Büro auf, die umgehend als Gemeinschaft förderndes Moment in die Belegschaft hinein wirken, alle fünf Minuten bleibt jemand mit der Kaffeetasse in der Tür stehen, schielt rein und bittet um eine Führung durch die Galerie. Wir kommen wieder ins Gespräch, können ein bisschen lachen und manchmal leise fluchen.
 
 Dann wird es ein paar Tage sehr dunkel in mir. Ich muss etwas verabschieden, an das ich mich gewöhnt habe, das mir lieb und teuer geworden ist, das ich unter keinen Umständen jetzt oder in naher Zukunft aus meinen Rippen schneiden will. Ich fahre weiter rein in die Berge, verbringe zwei Tage in Stille, schaue zum Karwendel, dem alten Massiv.
 
