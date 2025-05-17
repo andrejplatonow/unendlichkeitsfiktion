@@ -36,7 +36,7 @@ In der Institution stehen tiefgreifende strukturelle Veränderungen an, die Situ
 
 Zur Ablenkung und Stimmungsaufhellung hänge ich Kunstdrucke und Poster in meinem Büro auf, die umgehend als Gemeinschaft förderndes Moment in die Belegschaft hinein wirken, alle fünf Minuten bleibt jemand mit der Kaffeetasse in der Tür stehen, schielt rein und bittet um eine Führung durch die Galerie. Wir kommen wieder ins Gespräch, können ein bisschen lachen und manchmal leise fluchen.
 
-Dann wird es ein paar Tage sehr dunkel in mir. Ich muss etwas verabschieden, an das ich mich gewöhnt habe, das mir lieb und teuer geworden ist, das ich unter keinen Umständen jetzt oder in naher Zukunft aus meinen Rippen schneiden will. Ich fahre weiter rein in die Berge, verbringe zwei Tage in Stille, schaue zum Karwendel, dem alten Massiv.
+Dann wird es ein paar Tage sehr dunkel in mir. Ich muss etwas verabschieden, das mir lieb und teuer geworden ist, das ich unter keinen Umständen jetzt oder in naher Zukunft aus meinen Rippen schneiden will. Ich fahre weiter rein in die Berge, verbringe zwei Tage in Stille, schaue zum Karwendel, dem alten Massiv.
 
 By now I know you\
 I know how to trust
