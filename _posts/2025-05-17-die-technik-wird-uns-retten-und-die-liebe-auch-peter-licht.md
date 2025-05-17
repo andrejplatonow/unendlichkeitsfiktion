@@ -63,7 +63,7 @@ Yoda: On many long journeys have I gone.\
 And waited, too, for others to return from journeys of their own.\
 Some return; some are broken; some come back so different only their names remain.
 
-Ich warte auf dich. Zeig mir, wie es geht.\
+Zeig mir, wie es geht.\
 \
 Mary Oliver: I tell you this to break your heart, by which I mean, that it breaks open and never close again to the rest of the world.
 
