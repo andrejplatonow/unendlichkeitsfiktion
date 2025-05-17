@@ -24,6 +24,4 @@ Vor Kurzem bin ich mit einem Kind durch einen ungewöhnlich warmen spätherbstli
 
 Die Arbeit in der Praxis macht in diesem Winter besonders Spaß. Das liegt auch am Abschluss der Renovierungsarbeiten und den in allen Lampen eingedrehten warmgelben Leuchtmitteln, an der kleinen eleganten Teeküche und den bequemen Sesseln in den Besprechungszimmern. Weil ich mir die Praxis mit anderen Kolleginnen teile, liegen Entscheidungen zu Einrichtungsdetails manchmal lange in der Klärungsschleife.\
 \
-Das oben erwähnte Kind malt/schreibt mir einen Brief und schickt ihn in die Praxis. Die Kolleginnen lehnen den Brief gut sichtbar an die hölzerne Eule auf dem Schreibtisch, damit ich ihn gleich sehe, wenn ich reinkomme.\
-\
 In der ersten Dezemberwoche lässt langsam die Raserei des Novembers nach, mein Nacken wird wieder weich und die Termine schmelzen zu einem Pensum, bei dem ich mich als tatkräftig empfinden kann, ohne zu eilen. Ich mag diesen Zustand. Ich mag ihn sehr.
