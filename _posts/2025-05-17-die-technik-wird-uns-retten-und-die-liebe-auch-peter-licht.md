@@ -14,8 +14,7 @@ In diesen Tagen liege ich oft in Parks, wenn möglich unter Fliederbüschen, man
 
 all the stuff that we said\
 all the stuff that we touched\
-all the stuff that we hold
-
+all the stuff that we hold\
 now \[Jehezkel Raz]
 
 Beim Zahnarzt äußere ich (wie sich herausstellt unnötige) Sorgen um den Zustand meiner Zähne, worauf die sehr junge (sechzehnjährige?) Assistentin wartet, bis der Zahnarzt draußen ist, mir fest in die Augen schaut und sagt: Sie haben gute, schöne Zähne. Sie müssen sich überhaupt keine Gedanken machen. Echt, hake ich nach. Echt, sagt sie und lächelt mich wissend an.
