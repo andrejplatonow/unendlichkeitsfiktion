@@ -17,7 +17,7 @@ all the stuff that we touched\
 all the stuff that we hold\
 now \[Jehezkel Raz]
 
-Bei der Kontrolluntersuchung äußere ich (wie sich herausstellt unnötige) Sorgen um den Zustand meiner Zähne, worauf die sehr junge (sechzehnjährige?) Assistentin wartet, bis die Zahnärztin draußen ist, mir fest in die Augen schaut und sagt: Sie haben gute, schöne Zähne. Sie müssen sich überhaupt keine Gedanken machen. Echt, hake ich nach. Echt, sagt sie und lächelt mich wissend an.
+Bei der Kontrolluntersuchung äußere ich (wie sich herausstellt unnötige) Sorgen um den Zustand meiner Zähne, worauf die sehr junge (sechzehnjährige?) Assistentin wartet, bis die Zahnärztin draußen ist, mir fest in die Augen schaut und sagt: Sie haben gute, schöne Zähne. Sie müssen sich überhaupt keine Gedanken machen. Echt, hake ich nach? Echt, sagt sie und lächelt mich wissend an.
 
 Auf dem Rückweg in der U-Bahn folgt die nächste Begegnung mit einem etwa sechzehnjährigen Mädchen, das mit mir auf einem Viererplatz sitzt. Ein betrunkener, ihr gegenüber hockender Mann versucht wiederholt mittels distanzloser Bemerkungen Kontakt zu ihr aufzunehmen, worauf sie höflich, beschämt und kurz angebunden antwortet und dann zur Seite sieht. Unsere Blicke treffen sich. Ich nicke ihr solidarisch zu und setze mich aufrecht hin, damit sie meine Gegenwart besser spüren kann. Als ich aussteige neige ich mich zu ihr und frage, ob sie mit mir weggehen will, dass sie nicht hier sitzen bleiben muss und frage, was sie braucht. Sie bedankt sich, erwidert, okay zu sein und dass sie demnächst aussteigen wird.
 
