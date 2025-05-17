@@ -4,7 +4,7 @@ date: 2025-05-17T17:58:38.263Z
 ---
 In einer anderen Stadt stehen Freunde von mir an einem Osterfeuer, halten sich die Jacken zu und streichen sich die vom Wind bewegten Haare aus dem Gesicht und es ist mir wirklich egal, worüber wir sprechen, lachen oder schweigen, solange ich ein paar Mal im Jahr diese Menschen ansehen und mit ihnen um ein Feuer sein kann.
 
-Longing send out to the world, like echolocation, is going to cause some kind of response. And the response that comes, of course, is not in a domestic shape at all. So what is your eccentricity and how is it calling out to wider things beyond your settlement?
+Longing send out to the world, like echolocation, is going to cause some kind of response. And the response that comes, of course, is not in a domestic shape at all. So what is your eccentricity and how is it calling out to wider things beyond your settlement? \[Martin Shaw]
 
 Später sitze ich mit einer der Freundinnen an der warmen Hauswand vor dem Blumenbeet und sie erzählt mir die Legende von der Frau, die sich in einen Bären verliebt. Die oben stehenden Sätze zu Sehnsucht und das Echo, das unserer Sehnsucht antworten wird, werden mir tage- und wochenlang nachgehen. Das und die Tulpen, die hinter dem Kopf meiner Freundin leuchten, während sie spricht; große, auseinander klappende, rot, pink, lila, weiße Blüten. Wie Lampions rahmen die Tulpen die Legende und die Freundin, wie ein Ikone gerahmt sein muss von der Welt.
 
