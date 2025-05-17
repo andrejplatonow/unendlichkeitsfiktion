@@ -41,7 +41,7 @@ Dann wird es ein paar Tage sehr dunkel in mir. Ich muss etwas verabschieden, das
 By now I know you\
 I know how to trust
 
-Ich öffne meine Hände. Langsam. Einen Finger nach dem anderen. Es dauert die ganze Nacht. Ich schlafe kaum, bin froh, als es um Fünf heller wird. In meinem Gedanken- und Gefühlsgewebe werden alle Fäden lose, fallen auseinander, das ist kein Teppich mehr, kein Halt und Boden. Es muss auseinander fallen und ich muss fallen und ich falle nicht zum ersten Mal und ich falle nicht allein. Alle sind bei mir und ich bin mit allen.
+Ich öffne meine Hände. Langsam. Einen Finger nach dem anderen. Es dauert die ganze Nacht. Ich schlafe kaum, bin froh, als es um Fünf heller wird. In meinem Gedanken- und Gefühlsgewebe werden alle Fäden lose, fallen auseinander, das ist kein Teppich mehr und kein Halt. Es muss auseinander fallen und ich muss fallen und ich falle nicht zum ersten Mal und ich falle nicht allein. Alle sind bei mir und ich bin mit allen.
 
 Yoda: Train yourself to let go of everything you fear to lose.
 
