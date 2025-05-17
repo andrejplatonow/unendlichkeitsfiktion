@@ -28,7 +28,7 @@ Your response, your way to feel, your struggle, your approach to things and peop
 
 Die Mondsichel Anfang Mai ist perfekt abgezirkelt von dem sie umgebenden schwarzgrauen Vorhof. Messerscharf scheinende Sterne in der Finsternis. Die Abende sind lauwarm, selbst hier in Bergnähe weht nach Mitternacht ein milder grasiger Wind von den Feldern, in dem die Grillen mich in den Schlaf zirpen. Ich treffe ein paar Bekannte zu einem Frühlingsfest. Eine von ihnen hat drei Sträuße Flieder und Wisteria geschnitten und in Vasen in den Raum getragen. Die Fenster stehen offen, der Himmel dunkelt wie blaue Farbe in Wasser langsam nach. Ich bin so berauscht, dass ich mich auf den Boden lege und dort eine Stunde nichts tun kann als zu liegen, zu riechen und zu hören. Die Bekannte vollzieht ein Ritual, ein paar Leute singen, ich lasse mich willig betäuben und betören.
 
-you can take all the time you want to come in to this body \[Heather Christie]
+you can take all the time you want to come into this body \[Heather Christie]
 
 Nur wenige Tage zuvor hatte sich eine Bekannte das Leben nehmen wollen. Sie wurde rechtzeitig gefunden, eingeliefert und einige Wochen behandelt. Ich höre ihrer Schilderung fast reglos zu und lediglich meine flache Atmung in den zwei Tagen danach klärt mich darüber auf, dass ich mich nicht daran gewöhnen werde, egal wie regelmäßig es bei dieser Frau zu suizidalen Krisen kommt, egal, wie sehr ich versuche abzuschließen, und nicht mehr zu wollen, als da zu sein, wenn ich es kann.
 
