@@ -14,13 +14,7 @@ Mein Ringen mit manchen meiner spirituellen Mitmenschen und ihrer nachvollziehba
 \
 Wobei. Ich als Achtzehnjährige durchaus Erwachsene kannte, die mich auf dem Boden der Tatsachen halten wollten, was ich rundheraus abgelehnt habe, weil: langweilig, schwammig, moderat. Ich wollte durchbrennen. Das Mädchen, das ich war, hätte mit der Frau, die ich bin, nichts anfangen können.\
 \
-Nachdem ich zwei Tage auf diesem Zen-Groll herumsitze, gehe ich zur Meisterin und sage es ihr. Wie fast immer, wenn ich Streitgespräche nicht in meinem Kopf, sondern mit der betreffenden Person real führe, endet es gut. Befriedigend. Ich bin sicher, wäre sie nicht eine in Alltag und Beziehungen so sattelfest verankerte Frau, könnte ich kein Zen von ihr lernen.\
-\
-Arbeit in der Institution immer noch ruhig. Ich bestelle Poster für das neue Büro. Dafür präsentiere ich meinen Kolleginnen eine Slideshow mit 25 vorausgewählten Exemplaren und lege ihnen eine Liste zum Ankreuzen ihrer Favoriten in die Hand. Das Ranking ist noch nicht abgeschlossen. Ich denke ganz vorne mit dabei sind\
-\
-Pinie, Zeder, Zypresse, gezeichnet\
-Mädchen mit Wal, hohe See\
-Flowermarket Kyoto\
+Nachdem ich zwei Tage auf diesem Zen-Groll sitze, gehe ich zur Meisterin und sage es ihr. Wie fast immer, wenn ich Streitgespräche nicht in meinem Kopf, sondern mit der betreffenden Person real führe, endet es gut. Befriedigend. Ich bin sicher, wäre sie nicht eine in Alltag und Beziehungen so sattelfest verankerte Frau, könnte ich kein Zen von ihr lernen.\
 \
 Im vom Winter versehrten Garten sieht alles tot und knöchern aus. Nur das rote Weidenkätzchen reckt erste pelzige Knospen in die seltene Sonne. Mitte Februar, es ist fast geschafft. Zwei, drei Wochen noch, dann werden wir wieder auf Bürgersteigen sitzen, ins Licht blinzeln, uns entblättern, vielleicht eine Zigarette rauchen, die Flanke eines anderen Menschen an der Seite, nach Haut riechen in der lauen Abendluft.\
 \
