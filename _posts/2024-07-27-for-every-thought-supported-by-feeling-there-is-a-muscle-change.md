@@ -2,21 +2,13 @@
 title: For every thought supported by feeling, there is a muscle change
 date: 2024-07-27T13:49:27.867Z
 ---
-An einen Donnerstagnachmittag sitze ich auf einem Balkon in den Bergen und schaue zum Karwendel. So lange war ich nicht mehr hier. Die Wäsche jeden Tag draußen trocknen. An ihr riechen, wie am Kelch einer Blume. Die ganze Umgebung geht in die Wäsche ein: Heu, Sonne, Kühe, Holz, Staub und Hibiskus.\
+An einen Donnerstagnachmittag sitze ich auf einem Balkon in den Bergen und schaue zum Karwendel. So lange war ich nicht mehr hier. Die Wäsche jeden Tag draußen trocknen. Die ganze Umgebung geht in die Wäsche ein: Heu, Sonne, Kühe, Holz, Staub und Hibiskus.\
 \
-Ich schreite jetzt langsam durch mich hindurch. Auch meine Gefühle werden langsam, synchron zum Gehen in Zeitlupe. Die Verletzung am Fuß, dieser kleine gebrochene Knochen; so viel Kontrolle und Schnelligkeit hing daran. Ohne mein Wissen.\
+Ich schreite jetzt langsam durch mich hindurch. Auch meine Gefühle werden langsam, synchron zum Gehen in Zeitlupe. Die Verletzung am Fuß, dieser kleine gebrochene Knochen; so viel Kontrolle und Schnelligkeit hing daran. Ohne mein Wissen. Es hat etwas von Würde, dieses getragene Gehen/Hinken. Überraschenderweise. Ich fühle mich wichtig, sogar groß, während ich langsam den Raum durchquere, ihn durchmesse als würde ich eine Planetenreise unternehmen. Vielleicht ist das sogar mein eigentliches Tempo? Ein Tempo, bei dem alles mitkommt?\
 \
-Es hat etwas von Würde, dieses getragene Gehen/Hinken. Überraschenderweise. Ich fühle mich wichtig, sogar groß, während ich langsam den Raum durchquere, ihn durchmesse als würde ich eine Planetenreise unternehmen. Vielleicht ist das sogar mein eigentliches Tempo? Ein Tempo, bei dem mein Becken und Herz und alles mitkommt?\
-\
-Braucht es da noch das Zitieren von Moshé Feldenkrais, Mabel Elsworth Todd und all den vorherigen und folgenden Meisterinnen der Körperlehre? Wir sind unsere Bewegung. Was wir spüren und fühlen, wird unser Bild vom Ich.\
-\
-Und daneben, darunter und dazwischen die andere Seite der Medaille. Das ist nur durchblutete Materie. Kurz bewohne ich sie. Kurz bewegt sie mich.\
-\
-Beim Zen lade ich regelmäßig das Nichts ein. Nichtwissen, Nichtwollen, Nichtmehrauskennen in sich selbst. Die Lücke. Der unbeschriebene Raum.\
-\
-Und dann wieder Jesus. Ihm gegenüber sitzen. In seine Liebe fallen, wie in einen Brunnen. Kopflos, bodenlos.\
-\
-Wie viel Religion, Tradition und Experimentieren kann ich unterbringen in einem Leben? Ich sammel und höre nicht auf zu sammeln. Nicht nur Berufe, die ich hinter mir herziehe. Sinnlich und übersinnlich den Hals nicht vollkriegen. Es sickert ein, dass das mein Reichtum ist.\
+Moshé Feldenkrais, Mabel Elsworth Todd: Wir sind unsere Bewegung. Was wir spüren und fühlen, wird unser Bild vom Ich.
+
+Beim Zen lade ich regelmäßig das Nichts ein. Nichtwissen, Nichtwollen, Nichtmehrauskennen in sich selbst. Die Lücke. Der unbeschriebene Raum. Und dann wieder Jesus. Ihm gegenüber sitzen. In seine Liebe fallen, kopflos, bodenlos. Wie viel Religion, Tradition und Experimentieren kann ich unterbringen in diesem Leben? Sinnlich und übersinnlich den Hals nicht vollkriegen. Es sickert ein, dass das mein Reichtum ist.\
 \
 Bei einem Cateringjob vor zwanzig Jahren, für einen, den einen, Eliteveranstalter von Celebrity-Events, beim letzten Briefing vor dem dreitägigen Geburtstagsfest eines Adligen, nahm uns der Chef des Servicteams beiseite. Er schob ein Flipchart in die Mitte des Raums und schrieb unsere Namen darauf. Rund 40 an der Zahl. Hinter jedem Namen etwas Platz. Er sprach eine halbe Stunde von Träumen, Zielen und Motivation. Dann mussten wir einzeln vorgehen und auf den freien Platz hinter unserem Namen notieren, was wir mit all dem Geld (Hohn) tun würden, das uns winkte, wenn wir weiterhin 16 Stunden-Tage für den Eliteveranstalter kellnern würden. Was sozusagen unser life goal ist, wollte er wissen. Manche gingen vor und schrieben: Reisen. Andere: Luxuskarre. Wieder andere: Abfeiern. Ich ging vor und malte ein Fragezeichen hinter meinen Namen. Genau das hab ich bekommen.\
 \
