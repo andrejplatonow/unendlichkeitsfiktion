@@ -10,8 +10,7 @@ Später, etwa zwei Stunden später, mein 10 Jahre älteres Selbst flippt gerade 
 
 though you fade from earthly sight,\
 declare to the silent earth: I flow,\
-to the rushing water say: I am.
-
+to the rushing water say: I am.\
 \[Rilke]
 
 Rund zwei Dutzend Mal friert im Januar die Windschutzscheibe von innen ein – ich verbringe viel Zeit damit, auf nächtlichen Parkplätzen zu stehen und etwas frei zu kratzen. Einmal muss ich den Pannendienst rufen, bevor ich es mit aller Gewalt doch allein hinkriege, die eingerastete Handbremse zu lösen. Alte Autos. Im Winter immer ein Problem.
