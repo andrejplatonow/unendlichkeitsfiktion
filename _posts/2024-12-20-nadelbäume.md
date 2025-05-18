@@ -10,10 +10,4 @@ Zwei Tage spiele ich mit dem Gedanken, zwischen den Jahren Reißaus zu nehmen, m
 \
 An meinem ersten freien Tag schlafe ich knapp zwölf Stunden, mache einen Spaziergang, esse und schlafe gleich wieder ein. Auch in der Folgenacht schlafe ich sehr lang, ohne Infekt, ohne krank, es ist einfach Winter und viel Arbeit gewesen.\
 \
-Am anderen Morgen sehe ich drei, große, rote Füchse in ihrem, um diese Jahreszeit, dichten Pelz. Über ihnen der weite blaugraue Himmel, unter ihnen Frost, angeblich soll es an Weihnachten noch mal einen halben Meter schneien. Ich hole Zweige aus dem Wald. Im November wurden Fichten gefällt, an der Kreuzung liegen Reste, aus denen ich einen Türkranz binde.\
-\
-Dann treffe ich einen neuen Freund, einen vor wenigen Wochen aus San Francisco her gezogenen Mann, dessen Hund gerade gestorben ist. Auf meine Frage, warum er die USA verlassen hat, antwortet er, aus Angst vor Trump und weil die Tanzszene hier inklusiver ist und weil die Deutschen so schön langsam leben.\
-\
-Das beschäftigt mich lange. Weil ich ja denke, dass nur Menschen südlich der Alpen schön langsam leben. Und ich mir gar nicht ausmalen will, wie furchtbar es woanders sein muss, wenn man München als erholsam langsam empfindet.
-
-Eine Freundin macht Seifen mit fairtrade gehandelter Sheabutter und bringt die Seifen in einem schweren Koffer in die Stadt. Es ist einer der für mich wichtigen Dezemberhöhepunkte, wenn diese Lieferung eintrifft und es danach wochenlang im Badezimmer nach Rosmarin, Ginkgo und Bergamotte riecht.
+Am anderen Morgen sehe ich drei, große, rote Füchse in ihrem, um diese Jahreszeit, dichten Pelz. Über ihnen der weite blaugraue Himmel, unter ihnen Frost, angeblich soll es an Weihnachten noch mal einen halben Meter schneien. Ich hole Zweige aus dem Wald. Im November wurden Fichten gefällt, an der Kreuzung liegen Reste, aus denen ich einen Türkranz binde.
