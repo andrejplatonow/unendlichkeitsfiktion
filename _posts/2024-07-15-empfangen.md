@@ -6,17 +6,7 @@ Der iranische Freund der Freundin wird nun, nach zwei Jahren in der Asylbewerber
 
 Menschen, die Anrecht auf Schutz, aber keine Freunde haben, die das Stundenäquivalent eines Teilzeitjobs investieren, um ihr Bleiberecht durchzusetzen, haben in diesem System keine guten Karten.
 
-Anfang der Woche wippt der lila Sommerflieder schwer an den grünen Zweigen, ich schneide ein paar davon in die Vase, wo er seinen dunklen süßen Duft verströmt, auch nachts, wenn ich kurz wach werde. Es wird warm, es ist schwül, in der Institution stehen die Fenster auf Durchzug, die Jalousien sind runter gelassen, in den Besprechungen wird gefächert, alle verfügbaren Ventilatoren wurden aus dem Schrank gezerrt und befinden sich im Einsatz. Die Hitze, die Abwesenheit von frischer Luft, ein großes Thema hier in der Abteilung. Ein Thema, das fast zu Streitigkeiten führt, falls jemand vergessen sollte, rechtzeitig (!) zu verdunkeln. Was viel heißt in diesem Reich der Besonnenheit, wo so gut wie nie jemand eskaliert und allen ein lösungsorientiertes Miteinander wichtig ist. Auch mich macht die Wärme müde, ich kann die Müdigkeit aber irgendwie annehmen.\
-\
-Kurz vor Feierabend eine so oder ähnlich in vermutlich jedem Bürokomplex dieser Welt täglich durchgespielte Performance: PC runterfahren, einpacken, verabschieden, Tasse in die Küche stellen, gehen, kurz darauf wiederkommen und auf das verwunderte Aufschauen der Kolleg*innen antworten mit:\
-\
-Jacke vergessen.\
-Schirm.\
-Laptop da gelassen.\
-Handy.\
-Schlüssel!\
-\
-Triumph, wenn es einem aufgefallen ist, ehe man das Gebäude verlassen hat, Anerkennungssieg, vor dem Einsteigen in die U-Bahn, Niederlage, wenn schon zu Hause gewesen.
+Anfang der Woche wippt der lila Sommerflieder schwer an den grünen Zweigen, ich schneide ein paar davon in die Vase, wo er seinen dunklen süßen Duft verströmt, auch nachts, wenn ich kurz wach werde. Es wird warm, es ist schwül, in der Institution stehen die Fenster auf Durchzug, die Jalousien sind runter gelassen, in den Besprechungen wird gefächert, alle verfügbaren Ventilatoren wurden aus dem Schrank gezerrt und befinden sich im Einsatz. Die Hitze, die Abwesenheit von frischer Luft, ein großes Thema hier in der Abteilung. Ein Thema, das fast zu Streitigkeiten führt, falls jemand vergessen sollte, rechtzeitig (!) zu verdunkeln. Was viel heißt in diesem Reich der Besonnenheit, wo so gut wie nie jemand eskaliert und allen ein lösungsorientiertes Miteinander wichtig ist. Auch mich macht die Wärme müde, ich kann die Müdigkeit aber irgendwie annehmen.
 
 An einem losen und sonnigen Freitag sitze ich mit zwei Freundinnen an einem Tischchen auf der Donnersbergerstraße, trinke Kaffee, freue mich am Zusammensein und wittere so vor mich hin. Ich hab jetzt eine neue Falte auf der Stirn, die nicht mehr weg geht. Auch nicht, wenn ich entspanne, auch nicht mit Massagen. Älter werden in guter Gesellschaft an einem Freitag bei 26 Grad. Was will man mehr. Später schlendere ich durch das ehemalige Zuhause-Viertel. Fast zwanzig Jahre hab ich hier gewohnt. WG, erste Wohnung, zweite Wohnung, immer Altbau, immer mittendrin, Frühling, Sommer, Herbst, Winter zwischen diesen Häuserzügen. Die noch bezahlbaren Genossenschaftsblöcke in Nachbarschaft zu den nicht zerbombten Villen, Hortensien in Gärten hinter schmiedeeisernen Toren, Hubschrauber, Sirenen, der irre Verkehr, die ruhige Ateliersiedlung, Außengastronomie in allen Preisklassen und Lautstärken, der Melonenmann und in der Nacht rot glühende Neonbuchstaben auf dem Dach des Krankenhauses: Schwesternschule.\
 \
