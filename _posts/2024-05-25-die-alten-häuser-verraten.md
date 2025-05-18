@@ -20,8 +20,4 @@ Mit den Veranstaltern spreche ich am Donnerstag nicht über das Fallen oder den 
 \
 Ein Gestirn werden. 4,5 Milliarden Jahre brennen.\
 \
-Auf den Feldern kreisen die Milane tief. Am Wegrand gedeihen Kamillen, es duftet nach Heu und das Zirpen der Grillen begleitet mich. Zweimal werde ich an regenreichen Tagen komplett durchnässt, weil ich zu Terminen muss und nicht die 10 Minuten Zeit hab, mich unterzustellen. Das ist der Preis dafür, dass ich nie einen Schirm mitnehme, es fast immer gut geht und ich mir dieses kleine Gewicht spare.\
-\
-Am Ende der Woche melde ich mich telefonisch bei Lydia, einer Nachbarin, die ich beim letzten Weihnachtsfest hier im Ort kennengelernt habe. Sie kommt noch am gleichen Nachmittag vorbei, bringt Rosen aus ihrem Garten und bleibt zum Kaffee. Lydia ist die einzig mir bekannte 86 -Jährige, die einen Kopfstand kann. Sie hat 25 Jahre mit einem Mann und im Anschluss 25 Jahre mit einer Frau gelebt. Sie sagt, beides war furchtbar, sieht dabei aber nicht aus, als ob irgendwas furchtbar war. Sie sieht großartig aus: geschmeidig und sehr schlau. Im Obergeschoss ihres Hauses befand sich bis vor Kurzem eine umfangreiche Sammlung hochwertiger Kostüme aus den Sechzigern und Siebzigern, die sie schließlich aus Platzgründen an einen Kostümbildner der Wiener Oper verkaufte, der extra dafür mit einem Transporter und zwei Helfern anreiste. Lydia macht jeden Morgen Yoga, ist als Teenager aus der DDR geflohen und hängt manchmal in merkwürdigen Verdrehungen aus dem Fenster, um ihre Rosen an der Hauswand festzuklemmen. Ich bin gespannt, wie es mit ihr weitergeht.\
-\
 Morgen bin ich bei einem Workshop, in dem wir uns eine Stunde im Kreis drehen. Ich hoffe, mir wird nicht schlecht.
