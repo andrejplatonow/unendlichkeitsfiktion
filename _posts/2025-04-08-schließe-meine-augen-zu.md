@@ -1,5 +1,5 @@
 ---
-title: Wildgänse are back
+title: "Wildgänse "
 date: 2025-04-08T18:24:18.965Z
 ---
 Das warst du\
@@ -18,4 +18,4 @@ Während der Fortbildung in der Woche darauf pausiere ich gern und oft in der So
 \
 Und dann die Nächte. Wechselndes Licht, wechselnde dunkle Himmel. Stellas schwarzes Haar, die silbernen Streifen darin. Finger und Hände der anderen zu greifen, reinzuschwingen in ihre Umlaufbahn, mich ziehen zu lassen und nicht zu widerstehen. Keine Angst mehr vor diesem schmelzendem Kontakt mit der Welt zu haben; bei vollem Bewusstsein aufzugeben.\
 \
-Einen Samstag danach hocke ich in der Aprilsonne in der Mitte der Stadt auf einem grünen Streifen unter alten hohen Eichen. Es riecht nach einer Vorstufe von blühendem Baum oder Blumen. Meine Bauchdecke hebt und senkt sich. Der alte Rilke-Satz. Eins muss ich wieder können; fallen. Ich kaufe Rosenöl, reibe es in meine Armbeugen und tue meine Arbeit ohne Hast.
+Einen Samstag danach hocke ich in der Aprilsonne in der Mitte der Stadt auf einem grünen Streifen unter alten hohen Eichen. Es riecht nach einer Vorstufe von blühendem Baum oder Blumen. Meine Bauchdecke hebt und senkt sich. Der alte Rilke-Satz. Eins muss ich wieder können; fallen. Ich kaufe Rosenöl und reibe es in meine Armbeugen.
