@@ -7,6 +7,4 @@ Und ich denke, auch als er sein T-Shirt schon wieder trägt und hinten bei der T
 \
 Zwei Tage spiele ich mit dem Gedanken, zwischen den Jahren Reißaus zu nehmen, mich Freunden in Prag anzuschließen, in einer Kathedrale zu dem Sound eines DJs zu feiern, keinen Plan zu haben, der Gruppendynamik zu folgen wie ein Schaf. Dann fällt mir ein, dass die kommenden zwei Wochen vielleicht die einzigen für lange Zeit sein werden, in denen ich terminlos über die Felder streifen, den Füchsen im Schnee zusehen kann und sage Prag ab.\
 \
-An meinem ersten freien Tag schlafe ich knapp zwölf Stunden, mache einen Spaziergang, esse und schlafe gleich wieder ein. Auch in der Folgenacht schlafe ich sehr lang, ohne Infekt, ohne krank, es ist einfach Winter und viel Arbeit gewesen.\
-\
-Am anderen Morgen sehe ich drei, große, rote Füchse in ihrem, um diese Jahreszeit, dichten Pelz. Über ihnen der weite blaugraue Himmel, unter ihnen Frost, angeblich soll es an Weihnachten noch mal einen halben Meter schneien. Ich hole Zweige aus dem Wald. Im November wurden Fichten gefällt, an der Kreuzung liegen Reste, aus denen ich einen Türkranz binde.
+An meinem ersten freien Tag schlafe ich knapp zwölf Stunden, mache einen Spaziergang, esse und schlafe gleich wieder ein. Auch in der Folgenacht schlafe ich sehr lang, ohne Infekt, ohne krank, es ist einfach Winter und viel Arbeit gewesen.
