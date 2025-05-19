@@ -2,9 +2,7 @@
 title: Sterndeuter
 date: 2025-01-06T16:10:49.349Z
 ---
-In der Nacht Schnee. Am Morgen biegen sich die Zweige der Sträucher unter der Last bis zum Boden. Ich gehe zum Hof mit den Ziegen, die Äpfel und Karotten menschlicher Nähe vorziehen, sich aber dazu bequemen, wenn es kein Essen gibt, etwas Gestreicheltwerden entgegen zu nehmen. Ich mag den talg-fettigen Film auf meinen Fingern hinterher.
-
-Die Wolken in der Dämmerung ziehen wie große, alte Tiere, eine gigantische Herde, einander schiebend und überholend, in die Nacht. Im Süden geht eine messerscharf geschnittene Mondsichel unter, eine Handbreit darüber Venus, als hingen die beiden zusammen; ein Schriftzug.
+In der Nacht Schnee. Am Morgen biegen sich die Zweige der Sträucher unter der Last bis zum Boden. Ich gehe zum Hof mit den Ziegen, die sich dazu bequemen etwas Gestreicheltwerden entgegen zu nehmen. Ich mag den talg-fettigen Film auf meinen Fingern hinterher. Die Wolken in der Dämmerung ziehen wie große, alte Tiere, eine gigantische Herde, einander schiebend und überholend, in die Nacht. Im Süden geht eine messerscharf geschnittene Mondsichel unter, eine Handbreit darüber Venus.
 
 ![](/uploads/sterndeuter.jpg)
 
