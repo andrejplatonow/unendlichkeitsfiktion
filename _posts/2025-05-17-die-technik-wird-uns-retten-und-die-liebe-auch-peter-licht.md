@@ -32,12 +32,12 @@ In der Institution stehen strukturelle Veränderungen an, die Situation ist ange
 
 Zur Ablenkung und Stimmungsaufhellung hänge ich Kunstdrucke in meinem Büro auf, die umgehend als Gemeinschaft förderndes Moment in die Belegschaft hinein wirken, alle fünf Minuten bleibt jemand mit der Kaffeetasse in der Tür stehen, schielt rein und bittet um eine Führung durch die Galerie. Wir kommen wieder ins Gespräch, können ein bisschen lachen und leise fluchen.
 
-Dann wird es ein paar Tage sehr dunkel in mir. Ich muss etwas verabschieden, das mir lieb und teuer geworden ist, das ich unter keinen Umständen jetzt oder in naher Zukunft aus meinen Rippen schneiden will. Ich fahre weiter rein in die Berge, verbringe zwei Tage in Stille, schaue zum Karwendel, dem alten Massiv.
+Dann wird es ein paar Tage sehr dunkel in mir. Ich muss etwas verabschieden, das mir wichtig geworden ist, das ich unter keinen Umständen jetzt oder in naher Zukunft aus meinen Rippen schneiden will. Ich fahre weiter rein in die Berge, verbringe zwei Tage nahe am See und schaue zum Karwendel, dem alten Massiv.
 
 By now I know you\
 I know how to trust
 
-Ich öffne meine Hände. Langsam. Einen Finger nach dem anderen. Es dauert die ganze Nacht. Ich schlafe kaum und bin froh, als es um Fünf heller wird. In meinem Gedanken- und Gefühlsgewebe werden alle Fäden lose, fallen auseinander, das ist kein Teppich mehr und kein Halt. Es muss auseinander fallen und ich muss fallen und ich falle nicht zum ersten Mal und ich falle nicht allein. 
+Ich öffne meine Hände. Langsam. Einen Finger nach dem anderen. Es dauert die ganze Nacht. Ich schlafe kaum und bin froh, als es um Fünf heller wird. In meinem Gedanken- und Gefühlsgewebe werden alle Fäden lose und fallen auseinander. Das ist kein Teppich mehr und kein Halt. Es muss auseinander fallen und ich muss fallen und ich falle nicht zum ersten Mal und ich falle nicht allein. 
 
 Yoda: Train yourself to let go of everything you fear to lose.
 
