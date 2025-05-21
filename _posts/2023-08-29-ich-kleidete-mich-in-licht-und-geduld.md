@@ -19,10 +19,8 @@ Ich vermute, dass solche Sensationen für manche Menschen recht normal sind und 
 
 ![](/uploads/weiden2.jpg)
 
-Bei einer Wanderung in der Woche zuvor kommen wir an der Gedenktafel für den Wildschütz Georg Jennerwein vorbei, tragen alle Informationsschnipsel, die wir zu seiner Geschichte haben, zusammen, können aber erst beim Nachlesen zu Hause das Bild vervollständigen. Etwas oberhalb der Tafel treffen wir auf einen Fels, der unerwartet schwierig zu erklettern ist, eine halbe Stunde darf sich jede und jeder mit der eigenen Angst konfrontieren, später dann mit dem Abklingen der Angst und wie viel Käsebrot, Wasser und Schokolade nötig sind, um wieder in einen einigermaßen stabilen Zustand zurückzufinden. Nur eine Person in der Gruppe meistert den Fels ohne mit der Wimper zu zucken. Was soll man sagen: ein Tier, eine Maschine.
+Bei einer Wanderung treffen wir auf einen Fels, der unerwartet schwierig zu erklettern ist, eine halbe Stunde darf sich jede und jeder mit der eigenen Angst konfrontieren, später dann mit dem Abklingen der Angst und wie viel Käsebrot, Wasser und Schokolade nötig sind, um wieder in einen einigermaßen stabilen Zustand zurückzufinden. Nur eine Person in der Gruppe meistert den Fels ohne mit der Wimper zu zucken: ein Tier, eine Maschine.
 
-Zwei Nächte lang habe ich schlechte Träume, die mit der Prüfung im nächsten Frühjahr zu tun haben. Ich beginne, die Prüfung am Horizont wahrzunehmen, den Stoff, der bis dahin noch in mich hineinmuss, die Stunden, die ich dafür am Schreibtisch festkleben werde. Zwei Tage lang ringe ich den Reflex nieder, aufgrund der Träume meine Sommerpause abzubrechen, die Ordner auf den Tisch zu knallen und umgehend loszulegen.\
-\
-Es würde mir so schaden. Es würde mir so unendlich schaden.\
+Zwei Nächte lang habe ich schlechte Träume, die mit der Prüfung zu tun haben. Zwei Tage lang ringe ich den Reflex nieder, aufgrund der Träume meine Sommerpause abzubrechen, die Ordner auf den Tisch zu knallen und umgehend loszulegen. Es würde mir so schaden. Es würde mir so unendlich schaden.\
 \
 Einer der letzten Stürme hat den halben Hagebuttenstrauch ausgehebelt und umgelegt. Der Hagebuttenstrauch ist ein altes, sehr großes Exemplar, eher ein kleiner Baum, als ein Strauch. Ich bespreche mich mit etlichen Leuten und entscheide letztlich, den Strauch wieder aufzurichten und mit Spanngurten an der stehengebliebenen Hälfte zu befestigen. Die Wurzel scheint nicht komplett abgerissen, vielleicht kann sie die Hagebutten bis zum November weiter versorgen, so wäre zumindest die Ernte gerettet.
