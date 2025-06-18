@@ -22,8 +22,8 @@ Die Milane kreisen über den Häusern und stoßen feine helle Schreie aus. Morge
 \
 Love your hands! Kiss them. Touch others with them, pat them together, stroke them on your face. Love your mouth… This is flesh… Flesh that needs to be loved. Feet that need to rest and to dance; backs that need support; shoulders that need arms, strong arms.\
 Love your neck; put a hand on it, grace it, stroke it and hold it up.\
-\
-And all your inside parts... you got to love them. The dark, dark liver - love it, love it, and the beat and beating heart, love that too. More than eyes or feet, more than lungs, more than your life-holding womb and your life-giving private parts, love your heart. For this is the prize. \[Toni Morrison]\
+And all your inside parts...the dark, dark liver - love it, and the beat and beating heart. For this is the prize. \
+\[Toni Morrison]\
 \
 Diese Satzfragmente gehören zu einem längeren Abschnitt aus Toni Morrisons "Beloved", der Geschichte einer ehemaligen Sklavin, die von der erlittenen Brutalität und Grausamkeit heimgesucht wird. Die in dem Text beschriebene Hinwendung zum Körper ist keineswegs eine Art Luxus-Selfcare, die sich jemand gönnt, der bereits alles mögliche erreicht hat. Sie ist nicht die Sahnehaube auf einem privilegierten und abgesicherten Leben, sondern eine Antwort auf Schmerz und Gewalt in unaushaltbaren Zuständen.\
 \
