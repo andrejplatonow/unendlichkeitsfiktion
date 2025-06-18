@@ -18,9 +18,3 @@ In den Tagen darauf hat es endlich dreißig Grad, das geschnittene Heu wird gewe
 Ich vermute, dass solche Sensationen für manche Menschen recht normal sind und ich lediglich ein solches Aufheben darum mache, weil der Weg in meinen Körper hinein, ein so langwieriger, tastender und verstörter war.
 
 ![](/uploads/weiden2.jpg)
-
-Bei einer Wanderung treffen wir auf einen Fels, der unerwartet schwierig zu erklettern ist, eine halbe Stunde darf sich jede und jeder mit der eigenen Angst konfrontieren, später dann mit dem Abklingen der Angst und wie viel Käsebrot, Wasser und Schokolade nötig sind, um wieder in einen einigermaßen stabilen Zustand zurückzufinden. Nur eine Person in der Gruppe meistert den Fels ohne mit der Wimper zu zucken: ein Tier, eine Maschine.
-
-Zwei Nächte lang habe ich schlechte Träume, die mit der Prüfung zu tun haben. Zwei Tage lang ringe ich den Reflex nieder, aufgrund der Träume meine Sommerpause abzubrechen, die Ordner auf den Tisch zu knallen und umgehend loszulegen. Es würde mir so schaden. Es würde mir so unendlich schaden.\
-\
-Einer der letzten Stürme hat den halben Hagebuttenstrauch ausgehebelt und umgelegt. Der Hagebuttenstrauch ist ein altes, sehr großes Exemplar, eher ein kleiner Baum, als ein Strauch. Ich bespreche mich mit etlichen Leuten und entscheide letztlich, den Strauch wieder aufzurichten und mit Spanngurten an der stehengebliebenen Hälfte zu befestigen. Die Wurzel scheint nicht komplett abgerissen, vielleicht kann sie die Hagebutten bis zum November weiter versorgen, so wäre zumindest die Ernte gerettet.
