@@ -6,16 +6,17 @@ In einer anderen Stadt stehen Freunde von mir an einem Osterfeuer, halten ihre A
 
 Longing send out to the world, like echolocation, is going to cause some kind of response. And the response that comes, of course, is not in a domestic shape at all. So what is your eccentricity and how is it calling out to wider things beyond your settlement? \[Martin Shaw]
 
-Später sitze ich mit einer Freundin an der warmen Hauswand und sie erzählt mir die Legende von dem Mädchen, das sich in einen Bären verliebt. Die oben stehenden Sätze zu Sehnsucht und das Echo, das unserer Sehnsucht antworten wird, werden mir tage- und wochenlang nachgehen. Das und die Tulpen, die hinter dem Kopf der Freundin leuchten, während sie spricht; große, auseinander klappende, rot, pink, lila, weiße Blüten. Wie Lampions rahmen sie die Legende und ihr Gesicht, wie ein Ikone gerahmt wird von der Welt.
+Später sitze ich mit einer Freundin an der warmen Hauswand und sie erzählt mir die Legende von dem Mädchen, das sich in einen Bären verliebt. Die oben stehenden Sätze zu Sehnsucht und das Echo, das unserer Sehnsucht antworten wird, werden mir tage- und wochenlang nachgehen. Das und die Tulpen, die hinter dem Kopf der Freundin leuchten, während sie spricht; große, auseinander klappende, rot, pink, lila, weiße Blüten. Wie Lampions rahmen sie ihr Gesicht, wie ein Ikone gerahmt wird von der Welt.
 
 Ein Kollege besucht mich, ich nehme frei und gehe mit ihm zum großen Moorsee, wo wir in das flache, kalte Wasser waten, schreiend ich, stoisch er. Dann trocknen wir auf dem sandigen harten Boden am Ufer, Streuselkuchen in seinem Mund und Zigarette in meiner Hand. Es liegt ein besonderer Zauber darin, unter den unvermittelt heißen Apriltemperaturen in der Einsamkeit des Moors zu verweilen; gelbe Schlüsselblumen decken die Ebene, das Geplauder des Kollegen wechselt sich ab mit der Ruhe zwischen uns, die satt und weit ist, weil wir uns gut kennen und wechselseitig durchschauen. Eine halbe Stunde döse ich. Als ich aufwache, bitte ich ihn um ehrliche Rückmeldung zu einem meiner Wesenszüge und er gibt mir eines der schonungslosesten Feedbacks, das ich je gehört habe.
 
-In diesen Tagen liege ich oft in Parks, manchmal allein, manchmal mit anderen, nachmittags wenn die Sonne brennt und nachts, wenn gespeicherte Restwärme unsere Gespräche ummantelt. Eine der älteren, leidenschaftlichen Frauen, die ich beim Tanzen gelegentlich treffe, nimmt mich, als wir uns Samstag verabschieden, in den Arm und herzt mich minutenlang. Ihre Stirn an meiner Stirn, Küsse auf meinem Gesicht verteilend, Wange an Wange. Und ich finde es nicht nur nicht unangenehm, sondern gut und spüre nicht mehr, was mich früher immer hat fliehen lassen vor solchen Leuten und solchen Berührungen.
+In diesen Tagen liege ich oft in Parks, manchmal allein, manchmal mit anderen, nachmittags wenn die Sonne brennt und nachts, wenn gespeicherte Abwärme der Stadt unsere Gespräche ummantelt. Eine der älteren, leidenschaftlichen Frauen, die ich beim Tanzen gelegentlich treffe, nimmt mich, als wir uns Samstag verabschieden, in den Arm und herzt mich minutenlang. Ihre Stirn an meiner Stirn, Küsse auf meinem Gesicht verteilend, Wange an Wange. Und ich finde es nicht nur nicht unangenehm, sondern gut und spüre nicht mehr, was mich früher immer hat fliehen lassen vor solchen Leuten und solchen Berührungen.
 
 all the stuff that we said\
 all the stuff that we touched\
 all the stuff that we hold\
-now \[Jehezkel Raz]
+now \
+\[Jehezkel Raz]
 
 Bei einer Gartenparty mit Verwandten wickele ich die Tochter meines Bruders vor meinem Bauch in meine Jacke und erinnere mich, wie meine Tante mich ebenso in ihre Jacke gewickelt hat, im Mai vor sieben Jahren, als es auf der Beerdigung meiner Mutter plötzlich kalt wurde und ich zu dünn angezogen war in dem schwarzen Kleid. Dass der Austausch von Zuwendung immer weiter gehen kann durch die Zeit, die Jahrzehnte und die Städte, wenn ich ihn nicht willentlich stoppe.
 
