@@ -10,8 +10,4 @@ Und dann wird es doch sonnig. Es wird heiß und dampft, der Wald kippt ins Tropi
 
 Ein Kind, das immer mit den Männern vorneweg läuft, verkündet: Vorne die Coolen, hinten die Schwulen. Worauf einer der Männer an seiner Seite erwidert, dass nichts dabei ist, schwul zu sein. Worauf das Kind eine halbe Stunde überlegt und dann sagt: Wir sind die Coolen und die Schwulen. 
 
-Ein guter Tag. Es fließt.
-
-Man kann den Fluss nicht anschieben. Man kann ihn aber auch nicht aufhalten. \[Zitat Gottlieb und viele andere Meister]
-
-Ich liebe dieses Kind und schaue ihm zu, wie es zwischen den Erwachsenen hin und her pendelt. Das ist meine Gabe an diese Erde. Dass ich lieben kann, was mir nicht gehört. Was nur kurz bei mir ist.
+Ich liebe dieses Kind und schaue ihm zu, wie es zwischen den Erwachsenen hin und her pendelt. Das ist meine Gabe an die Erde. Dass ich lieben kann, was mir nicht gehört. Was nur kurz bei mir ist.
