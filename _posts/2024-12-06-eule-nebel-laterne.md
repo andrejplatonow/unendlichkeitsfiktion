@@ -16,8 +16,4 @@ In der Institution starte ich in die Einarbeitung zweier neuer Mitarbeiter. Das 
 \
 Montagabend sitze ich in der Zenschule zwei Stunden auf dem Kissen und schaue zur Wand. Die erste Stunde finde ich es toll, dann wird mir langweilig, dann halte ich dieses Herum-Meditieren für eine bescheuerte, elitäre und todesverherrlichende Veranstaltung, kurz darauf fällt mir eine Anekdote aus dem Freundeskreis ein, ich unterdrücke einen Lachanfall, beruhige mich wieder, höre einer anderen Person bei einem zehnminütigen Hustenanfall zu, es folgt der Gong, ich stehe auf, verneige mich, singe ein Gelübde und gehe nach Hause.\
 \
-Ich habe keinen blassen Schimmer, was ich da tue.\
-\
-Manchmal ist die Reihenfolge auch umgekehrt. Es fängt langweilig und nervig an, wird besser, entpuppt sich, nimmt Fahrt auf, bis ich zwischen diesen Menschen und meiner Ewigkeit sitze, wie in einem weit aufgespannten Zelt und alles gleichzeitig spüren und betasten kann.\
-\
-Vor Kurzem bin ich mit einem Kind durch einen ungewöhnlich warmen spätherbstlichen Tag zurück zum Zuhause des Kindes gelaufen. Wir haben Laternenlieder gesungen. Eines der Lieder endet mit einem langezogenen Hu. Als ich mit meinem Mund das u formte und neben meinem Ton den Ton des Kindes hörte, wurde mir klar, dass es ab jetzt immer einen Ort in mir geben wird, in dem dieses Kind und ich an einem Tag im Herbst durch die warme Luft nach Hause gehen und gemeinsam singen. In der ersten Dezemberwoche lässt langsam die Raserei des Novembers nach, mein Nacken wird wieder weich und die Termine schmelzen zu einem Pensum, bei dem ich mich als tatkräftig empfinden kann, ohne zu eilen. Ich mag diesen Zustand. Ich mag ihn sehr.
+Ich habe keinen blassen Schimmer, was ich da tue.
