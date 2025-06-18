@@ -2,7 +2,7 @@
 title: Wärmer anziehen
 date: 2024-10-11T20:42:46.965Z
 ---
-In den Tagen der Ankommens treffe ich eine Freundin in dem Séparée eines Lokals, das ich früher aus nachbarschaftlichen Gründen häufig aufsuchte. Während die Freundin den Kaffee am Tresen holt fällt mir ihr am Stuhl hängender Mantel ins Auge - die Strahlkraft eines tiefen satten Schwarz - und überhaupt am Rücken von Menschen aufliegende Textilien - die stoffliche Halt, den sie spenden können, eine gewebte Umarmung der Rückseite des Körpers, wo wir uns selbst so schlecht erreichen.
+In den Tagen der Ankommens treffe ich eine Freundin in dem Séparée eines Lokals, das ich früher aus nachbarschaftlichen Gründen häufig aufsuchte. Während die Freundin den Kaffee am Tresen holt fällt mir ihr am Stuhl hängender Mantel ins Auge - die Strahlkraft eines tiefen satten Schwarz - und überhaupt am Rücken von Menschen aufliegende Textilien - eine gewebte Umarmung der Rückseite des Körpers, wo wir uns selbst so schlecht erreichen.
 
 ![](/uploads/ko.jpg)
 
