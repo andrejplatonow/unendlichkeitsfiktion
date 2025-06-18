@@ -10,4 +10,4 @@ Drei Stationen später haben mich diese jungen Menschen aus der S-Bahn gezogen, 
 
 Der Notarzt kam und meine Bezugsperson kam und die Nachbarfreundin kam und alle Werte waren okay und nichts passiert und Anna und Tobi und noch ein anderer winkten und torkelten weiter.
 
-So ist das. Manchmal gibt man viel Liebe und manchmal empfängt man viel Liebe. Und während 170 Leute nüchtern nach Hause gehen, wanken Hunderttausende ohne Impulskontrolle durch die Stadt. Und alle begegnen sich und keiner weiß, was an diesem Abend noch passiert.
+So ist das. Manchmal gibt man viel Liebe und manchmal empfängt man viel Liebe.
