@@ -7,7 +7,8 @@ Es kommt dann so, wie ich es befürchtet habe und ich muss etwas loslassen, das 
 ...the defining aspect of human experience is the constant collision between our wishes and reality, the sharp violation of our expectations, the demolition of our plans. We call this suffering. Suffering is the price we pay for a consciousness capable of love and the loss of love, of hope and the devastation of hope. Because suffering, like consciousness itself, is a full-body phenomenon…
 
 We create poems and paintings, stories and songs to find a language for the bewilderment of being alive, the failure of it, the fulness of it, and to have lived fully is not to have spared yourself.\
-[[Maria Popova](https://www.themarginalian.org/2025/07/07/suffering-creativity-canetti-rilke/)]\
+[[Maria Popova](https://www.themarginalian.org/2025/07/07/suffering-creativity-canetti-rilke/)]
+
 Noch später in der Nacht, der Mond ist zu sehen, wir laufen zum Fluss, ziehen uns ganz aus und waten in das dunkle warme Wasser, Stella, zwei andere und ich - unserer milchige Haut so geliebt und richtig unter dem Himmelskörper.
 
 Unterdessen in der Institution; viel Arbeit, viel mehr als sonst, eigentlich ausgewachsener Stress, seit vier Wochen am Stück. Das sanfte, kollegiale Lächeln der Lektorin und der Trost, der darin liegt, mit ihr aus den Meetings zu stolpern, das Optimierungs-Vokabular abzuschütteln und in der Büroküche den unsäglichen Kaffee zu trinken, immer wieder, immer wieder.
