@@ -26,4 +26,4 @@ Auf einem Seminar, das ich kürzlich für eine Gruppe leistungsorientierter Mens
 To refuse the dark side of ones nature is to store up or to accumulate the darkness. \
 \[Robert A. Johnson]\
 \
-Die Teilnehmenden des Seminars kamen immer wieder auf dieses Detail zurück. Es schien sie mindestens so sehr zu beschäftigen, wie der eigentliche Inhalt der Fortbildung. Ich kann nicht für andere sagen, wie Dunkelheit gelebt werden kann, ohne jemanden oder etwas dabei zu zerstören. Aber ich weiß es für mich. Ich habe einen Weg gefunden, Dunkelheit in Händen zu tragen, wie Feuer, ohne zu verbrennen.
+Die Teilnehmenden des Seminars kamen mehrmals auf dieses Detail zurück. Es schien sie mindestens so sehr zu beschäftigen, wie der eigentliche Inhalt der Fortbildung. Ich kann nicht für andere sagen, wie Dunkelheit gelebt werden kann, ohne jemanden oder etwas dabei zu zerstören. Aber ich weiß es für mich. Ich habe einen Weg gefunden, Dunkelheit in Händen zu tragen, wie Feuer, ohne zu verbrennen.
