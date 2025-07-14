@@ -21,7 +21,7 @@ Eine neue Freundin lädt mich ein, mit ihr in ihrem Camper auf ein Festival zu f
 
 (Some blossom like a flower, some detonate like a mine)
 
-Auf einem Seminar, das ich für eine Gruppe leistungsorientierter Menschen gebe, erwähne ich in einem Nebensatz, meine Arbeit, die viel Zurückhaltung, Timing, Verständnis und Empathie verlangt, nicht tun zu können, wenn ich nicht 4-5 Stunden pro Woche, besser mehr, meine Dunkelheit leben würde. Vernunftlosigkeit, Egoismus, meine rücksichtslosen Wünsche. Wenn ich nicht immer wieder der Wut Ausdruck verleihen würde, die mich gelegentlich streift. Wie ich verkörpern muss, was ich noch bin, neben einem liebevollen und sozialen Wesen.
+Auf einem Seminar, das ich für eine Gruppe leistungsorientierter Menschen gebe, erwähne ich in einem Nebensatz, meine Arbeit, die viel Zurückhaltung, Timing, Verständnis und Empathie verlangt, nicht tun zu können, ohne 4-5 Stunden pro Woche, besser mehr, meine Dunkelheit zu leben. Vernunftlosigkeit, Egoismus, meine rücksichtslosen Wünsche. Wenn ich nicht immer wieder der Wut Ausdruck verleihen würde, die mich gelegentlich streift. Wie ich verkörpern muss, was ich noch bin, neben einem liebevollen und sozialen Wesen.
 
 To refuse the dark side of ones nature is to store up or to accumulate the darkness. \
 \[Robert A. Johnson]\
