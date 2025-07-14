@@ -63,5 +63,3 @@ Some return; some are broken; some come back so different only their names remai
 Zeig mir, wie es geht.\
 \
 Mary Oliver: I tell you this to break your heart, by which I mean, that it breaks open and never close again to the rest of the world.
-
-Ich habe dich geliebt, bevor du da warst. Ich habe die Idee geliebt, dass es so etwas wie dich geben könnte.
