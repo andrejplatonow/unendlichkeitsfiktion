@@ -21,9 +21,9 @@ Eine neue Freundin lädt mich ein, mit ihr in ihrem Camper auf ein Festival zu f
 
 (Some blossom like a flower, some detonate like a mine)
 
-Auf einem Seminar, das ich kürzlich für eine Gruppe leistungsorientierter Menschen gab, erwähnte ich in einem Nebensatz, meine Arbeit, die viel Zurückhaltung, Timing, Verständnis und Empathie verlangt, nicht tun zu können, wenn ich nicht 4-5 Stunden pro Woche, besser mehr, meine Dunkelheit leben würde. Meine Vernunftlosigkeit, meinen Egoismus, meine rücksichtslosen Wünsche. Wenn ich nicht immer wieder der Wut Ausdruck verleihen würde, die mich gelegentlich streift. Wie ich verkörpern muss, was ich noch bin, neben einem liebevollen und sozialen Wesen.
+Auf einem Seminar, das ich für eine Gruppe leistungsorientierter Menschen gebe, erwähne ich in einem Nebensatz, meine Arbeit, die viel Zurückhaltung, Timing, Verständnis und Empathie verlangt, nicht tun zu können, wenn ich nicht 4-5 Stunden pro Woche, besser mehr, meine Dunkelheit leben würde. Vernunftlosigkeit, Egoismus, meine rücksichtslosen Wünsche. Wenn ich nicht immer wieder der Wut Ausdruck verleihen würde, die mich gelegentlich streift. Wie ich verkörpern muss, was ich noch bin, neben einem liebevollen und sozialen Wesen.
 
 To refuse the dark side of ones nature is to store up or to accumulate the darkness. \
 \[Robert A. Johnson]\
 \
-Die Teilnehmenden des Seminars kamen mehrmals auf dieses Detail zurück. Es schien sie mindestens so sehr zu beschäftigen, wie der eigentliche Inhalt der Fortbildung. Ich kann nicht für andere sagen, wie Dunkelheit gelebt werden kann, ohne jemanden oder etwas dabei zu zerstören. Aber ich weiß es für mich. Ich habe einen Weg gefunden, Dunkelheit in Händen zu tragen, wie Feuer, ohne zu verbrennen.
+Die Teilnehmenden des Seminars kommen mehrmals auf dieses Detail zurück. Es scheint sie mindestens so sehr zu beschäftigen, wie der eigentliche Inhalt der Fortbildung. Ich kann nicht für andere sagen, wie Dunkelheit gelebt werden kann, ohne jemanden oder etwas dabei zu zerstören. Aber ich weiß es für mich. Ich habe einen Weg gefunden, meine Dunkelheit in Händen zu tragen, wie Feuer, ohne zu verbrennen.
