@@ -10,7 +10,7 @@ Am andern Morgen sind die Duschen kalt und die Warteschlangen lang, aber der bla
 
 Tagsüber zerstreuen wir uns, nehmen halbherzig an Workshops teil, baden in dem grasigen Teich oder wälzen Gedanken, nachts finden wir wieder zusammen unter einem kleinen halb überdachten Zelt, fassen uns an Händen und Hüften und stehen eine Stunde oder zwei in dem psychedelischen Klangteppich eines langhaarigen DJs. Ich glaube, es handelt sich um stark verfremdete The Doors Songs, kenne mich aber zu wenig aus.
 
-Vielleicht ist das alles gar nicht echt, ich oder jemand hat es erfunden – das denke ich oft in diesen Tagen – ein Etwas versucht mich glücklich zu machen; ein Wesen, die Gemeinschaft, Entität, das Kollektiv oder die Summe dieser vorbei zischenden, verglühenden Seelen. Wie riskant das ist, für mich und andere, so roh zu sein, menschlich und angewiesen aufeinander. So viel zu wagen, so übertrieben zu träumen und haushoch zu verlieren.
+Vielleicht ist das alles gar nicht echt, ich oder jemand hat es erfunden – das denke ich oft in diesen Tagen – ein Etwas versucht mich glücklich zu machen; ein Wesen, die Gemeinschaft, Entität, das Kollektiv oder die Summe dieser vorbei zischenden, verglühenden Seelen. Wie riskant das ist, für mich und andere, so roh zu sein und angewiesen aufeinander. So viel zu wagen, so übertrieben zu träumen und haushoch zu verlieren.
 
 If you don’t try to fly\
 and so break yourself apart,\
