@@ -5,7 +5,7 @@ date: 2025-08-27T14:09:09.424Z
 ---
 ![](/uploads/mandorla.jpeg)
 
-gehe zum Auto gehenDie Lampe schwankt im Augustwind und unter ihr die korallfarbenen Bänder, die ich gekauft habe und mit denen ich irgendwann etwas tun werde; sie um meine Handgelenke binden, in etwas hineinweben, anderen Menschen ins Haar flechten, damit tanzen, die an den Rändern ausfransenden Fäden durch den ganzen Raum ziehen, eine Qualle sein, alles berühren, alles streifen mit meinen seidigen, langen Armfortsätzen.
+Die Lampe schwankt im Augustwind und unter ihr die korallfarbenen Bänder, mit denen ich irgendwann etwas tun werde; sie um meine Handgelenke binden, in etwas hineinweben, anderen Menschen ins Haar flechten, damit tanzen, die an den Rändern ausfransenden Fäden durch den ganzen Raum ziehen, eine Qualle sein, alles berühren, alles streifen mit meinen seidigen, langen Armfortsätzen.
 
 In einer Vollmondnacht sitzen Freunde von mir in einem eingewachsenen Garten, wiegen ihre Oberkörper und singen leise mit, während vorne eine Frau etwas chantet, beschwört oder aus ihrem Zwerchfell heraus vibrieren lässt - ich weiß nicht, wie man so was nennt - es hört sich nach anderem Zeitalter an. Später springt jemand über ein Feuer, das Licht der Flammen flackert auf Stellas Gesicht, erhellt ihren Hals, das schwarze Haar. Sie wird herüberkommen, bald oder gleich, ihre Hände an meine Seiten legen, mich sacht bewegen, mit mir schwanken, behutsamer noch als der Augustwind in der Lampe.
 
