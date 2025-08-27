@@ -18,7 +18,7 @@ Eine Woche danach fahre ich zu der Gaststätte beim Kloster, lege das Anatomiebu
 Der Bergfreund hilft mir. Er erfindet Zukunftsversionen, in denen ich alles hinübergerettet habe, was gut ist und alles verlassen habe, was gut gewesen wäre, aber nicht lebbar war. Ich bitte ihn darum, immer wieder. Ich sage, erzähl von meiner Zukunft, erfinde, wie ich okay sein werde, in sechs Monaten oder zwölf oder zwanzig.\
 Er hat multiple Welten in der Rückhand, gedachte und bis dahin ungedachte; Monde, Umlaufbahnen, von Wasseradern durchzogene Gebirgszüge, Menschen, die darin auftauchen, bleiben oder weiter gehen, neu entstehende Geflechte, Kräfte, die uns ausdehnen, größer machen, stark und weich.
 
-Es war richtig, mir Freunde zuzulegen, die ihren überdurchschnittlich hohen IQ dafür verwenden, der Gemeinschaft zu dienen. Die Gemeinschaft bin dann häufig ich.
+Es war richtig, mir Freunde zuzulegen, die ihren überdurchschnittlich hohen IQ dafür verwenden, der Gemeinschaft zu dienen. Die Gemeinschaft bin in dem Fall ich.
 
 Unterdessen hat ein Nachbar einen Hahn gekauft, ein anderer zwei kleine Schafe, neue Katzen sind hinzugekommen und eine der Ziegen ist gestorben. Ich schneide Dahlien auf dem Feld und liege in sanft fließendem Wasser, Libellen lassen sich auf dem Schilf neben mir nieder, ich sehe ihnen bei der Paarung zu.
 
