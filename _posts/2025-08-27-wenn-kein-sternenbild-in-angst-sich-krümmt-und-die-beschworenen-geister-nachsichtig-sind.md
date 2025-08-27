@@ -1,5 +1,5 @@
 ---
-title: wenn kein Sternenbild in Angst sich krümmt und die beschworenen Geister
+title: Wenn kein Sternenbild in Angst sich krümmt und die beschworenen Geister
   nachsichtig sind
 date: 2025-08-27T12:30:04.456Z
 ---
