@@ -2,7 +2,7 @@
 title: The sacred returns through the body
 date: 2025-11-23T19:39:22.204Z
 ---
-Am Morgen schillert die kristalline Schneedecke von den Gipfeln der Karwendels. Ich trage meinen langen, schwarzen Mantel, den pelzigen Kragen hochgeschlagen, schwer um die Beine flatternden Stoff; dunkler Kontrast zum weißen Massiv. Ich kann eine mongolische Prinzessin sein, wenn ich so gehe, im ersten Morgenlicht, mit Kälte vertraut, Steppenbewohnerin und Hüterin von Herden, ohne inneren Zwist, ohne den Versuch, woanders zu sein.\
+Am Morgen schillert die kristalline Schneedecke von den Gipfeln des Karwendels. Ich trage meinen langen, schwarzen Mantel, den pelzigen Kragen hochgeschlagen, schwer um die Beine flatternden Stoff; dunkler Kontrast zum weißen Massiv. Ich kann eine mongolische Prinzessin sein, wenn ich so gehe, im ersten Morgenlicht, mit Kälte vertraut, Steppenbewohnerin und Hüterin von Herden, ohne inneren Zwist, ohne den Versuch, woanders zu sein.\
 Es sind diese wenigen Tage am Ende des Jahres, wenn der November in den Dezember kippt, an denen ich Ja sage zum Winter, die eisige Luft akzeptiere, das Enden und Verschwinden von allem will.\
 \
 I have hope for your people,\
