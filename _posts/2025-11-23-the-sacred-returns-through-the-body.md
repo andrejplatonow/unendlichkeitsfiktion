@@ -1,5 +1,5 @@
 ---
-title: Überwintern
+title: Entfernen
 date: 2025-11-23T19:39:22.204Z
 ---
 Am Morgen schillert die kristalline Schneedecke von den Gipfeln des Karwendels. Ich trage meinen langen, schwarzen Mantel, den pelzigen Kragen hochgeschlagen, schwer um die Beine flatternden Stoff; dunkler Kontrast zum weißen Massiv. Ich kann eine mongolische Prinzessin sein, wenn ich so gehe, im ersten Morgenlicht, mit Kälte vertraut, Steppenbewohnerin und Hüterin von Herden, ohne inneren Zwist, ohne den Versuch, woanders zu sein.\
