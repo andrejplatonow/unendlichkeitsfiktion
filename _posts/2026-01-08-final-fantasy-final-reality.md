@@ -17,11 +17,17 @@ Ich habe endlich jemanden gefunden, dessen Schlafstörung sich mit meiner zeitli
 
 Am Samstag steigt der Wolfsmond auf und flutet die schneebedeckten Ebenen vor den Bergen mit weißem Stadionlicht. Mehrmals stehe ich in den Tagen zwischen den Jahren in einem Kreis und sehe in die geweiteten Augen meiner Freunde, absorbiere ihre Ekstase, vermenge und potenziere sie mit meiner.
 
-dance when you' re broken open
+dance when you're broken open
+
 dance if you've torn the bandage off
+
 dance in the middle of fighting
+
 dance in your blood
+
 dance when you are perfectly free
+
+[Rumi]
 
 Ich besuche Thula, die länger krank ist und einen 85-jährigen Freund, der nun deutlich dement wird. Das Patenkind in der Wohngruppe antwortet auf Nachrichten und teilt sich mit, was nicht selbstverständlich ist.
 
