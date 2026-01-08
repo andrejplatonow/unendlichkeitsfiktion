@@ -15,7 +15,7 @@ Bist du noch wach, schreibe ich einem Freund, während das Mädchen an der Garde
 
 Ich habe endlich jemanden gefunden, dessen Schlafstörung sich mit meiner zeitlich deckt.
 
-Am Samstag steigt der Wolfsmond auf und flutet die schneebedeckten Ebenen vor den Bergen mit weißem Stadionlicht. Mehrmals stehe ich in den Tagen zwischen den Jahren in einem Kreis und sehe in die geweiteten Augen meiner Freunde. Ich absorbiere ihre Ekstase, vermenge und potenziere sie mit meiner.
+Am Samstag steigt der Wolfsmond auf und flutet die schneebedeckten Ebenen vor den Bergen mit weißem Stadionlicht. Mehrmals stehe ich in den Tagen zwischen den Jahren in einem Kreis und sehe in die geweiteten Augen meiner Freunde, absorbiere ihre Ekstase, vermenge und potenziere sie mit meiner.
 
 dance when you' re broken open
 dance if you've torn the bandage off
