@@ -43,7 +43,7 @@ Saure Gurke in Käsescheibe gewickelt.
 
 Zu Silvester reist die Lyrikfreundin aus Berlin an und besucht mit mir eine Veranstaltung, auf der die härteste verfügbare Substanz alkoholfreier Sekt mit Cranberrysaft ist. Wir nehmen brav und fast sarkasmusfrei teil an Ritualen, Gesang, miteinander Tönen und um den Altar Tanzen, verlassen aber nach Mitternacht zügig das Gebäude, eine von der Bar geklaute Flasche alkoholfreien Sekt unter der Jacke.
 
-Eine Cousine sendet Räucherwerk, das ich am Morgen entzünde und in das gleißenden Weiß der Karwendelkette halte. Ich ruf euch zu, ihr Verschwundenen und Wiederkommenden. Ich ruf euch zu, ihr für immer Verlorenen. Ich ruf euch zu, ihr in anderer Gestalt Weiterlebenden. Ich spreche eure Namen. Ich vergesse euch nicht.
+Eine Cousine sendet Räucherwerk, das ich am Morgen entzünde und in das gleißende Weiß der Karwendelkette halte. Ich ruf euch zu, ihr Verschwundenen und Wiederkommenden. Ich ruf euch zu, ihr für immer Verlorenen. Ich ruf euch zu, ihr in anderer Gestalt Weiterlebenden. Ich spreche eure Namen. Ich vergesse euch nicht.
 
 Nachdem der Sommer mich in manchen Belangen schonungslos herunter geschliffen hat, verhält sich der Winter vergleichsweise gnädig, fast samtig, mit lediglich bewältigbaren Lernaufgaben. Ich werde oft berührt in diesem Winter, angetastet, gedreht und von verspielten Armen gezogen. Ich verliere Kontrolle, entgleise, fühle meine Unsicherheit, halte Menschen, während sie haltlos weinen und mache mich an unterschiedlichen Stellen so final lächerlich, dass es in diesem Leben kein Zurück mehr in eine vermeintliche Überlegenheit geben wird. Ich habe mich allen verraten und wurde von allen erkannt.
 
