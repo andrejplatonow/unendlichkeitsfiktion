@@ -7,7 +7,7 @@ In einer Nacht um 2 stehe ich nah vor der Box in einem Club und schließe die Au
 Die DJs, von denen ich mich verstanden fühle, kann ich an einer Hand abzählen und nur drei von ihnen legen regelmäßig in München auf.
 
 Später sind es minus 5 Grad, als ich draußen vor der Garderobe auf meinen Mantel warte. Es schneit und meine Haut schmerzt in der Kälte.
-Gehts dir gut, fragt jemand, der hinter mir in der Schlange steht.
+Gehts dir gut, fragt ein Fremder, der hinter mir in der Schlange steht.
 
 Mir ist der verwüstete Zustand meines Erscheinungsbilds bewusst und dass er zurecht Fürsorgereflexe bei meinen Mitmenschen auslöst. Aber mir geht es gut. Ich bin versorgt, emotional satt und high von körpereigenem Serotonin.
 
