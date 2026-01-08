@@ -1,6 +1,6 @@
 ---
 title: final fantasy - final reality
-date: 08.01.2026 21:30
+date: 08.01.2026 20:30
 ---
 In einer Nacht um 2 stehe ich nah vor der Box in einem Club und schließe die Augen. Ich fühle mich ernst genommen und muss ein bisschen mit den Tränen kämpfen. Es kommt nicht oft genug vor, dass ich eine full-body-phenomenon Beziehung mit einem Set eingehen kann, obwohl ich es immer will und immer bereit bin.
 
