@@ -28,7 +28,7 @@ Mitte des Monats verbringe ich mehrere Abende bei einer Freundin, während sie a
 
 Wie soll ich das verstehen, sagt kurz darauf ein anderer Freund, den Kopf weggedreht in seine Schulter weinend. Dass alles weg ist und Erinnerungen schmerzen, auch die guten, gerade die guten. Wann hört das auf? Sind sieben Jahre nicht genug?
 
-In der Fortbildung stellen wir uns als Gruppe einem seit Langem schwelenden Konflikt, in dem jede und jeder Teilnehmende eine klar formulierte Position beziehen, vertreten und in Beziehung mit den anderen bringen muss. Ich erlebe das erste Mal seit ich mit Menschen arbeite, wie ein eigentlich nicht mehr aufhaltbarer galoppierender Gruppenzerbruch ausbleibt, weil ein talentierter und weiser Trainer es vermag, die Beteiligten an den weichen-starken Kern ihrer Gemeinschaftsfähigkeit zu geleiten. Ich werde Wochen brauchen, um nachzuvollziehen, wie das möglich war, wie das überhaupt von Statten ging.
+In der Fortbildung stellen wir uns als Gruppe einem seit Langem schwelenden Konflikt, in dem jede und jeder Teilnehmende eine klar formulierte Position beziehen, vertreten und in Beziehung mit den anderen bringen muss. Ich erlebe das erste Mal seit ich mit Menschen arbeite, wie ein eigentlich nicht mehr aufhaltbarer galoppierender Gruppenzerbruch ausbleibt, weil ein talentierter und weiser Trainer es vermag, die Beteiligten an den weich-starken Kern ihrer Gemeinschaftsfähigkeit zu geleiten. Ich werde Wochen brauchen, um nachzuvollziehen, wie das möglich war, wie das überhaupt von Statten ging.
 
 ![](/uploads/Winter%202026_B.jpg)
 
