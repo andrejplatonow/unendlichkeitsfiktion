@@ -21,10 +21,7 @@ Jeder Mensch hat eine Geste. Etwas, das er geben muss. Etwas, das sie verschleud
 Do not go gentle into that good night. Rage, rage, against the dying of the light.
 Hier ist es leicht. Auch für mich. Mich zu verausgaben und zu entäußern. Als hätten die Jahrhunderte gewartet auf eine wie mich. Auf eine die zurückliebt; ekstatisch und taumelnd.
 
-
 ![](/uploads/Winter%202026_A.jpg)
-
-
 
 When we cease to understand the world.
 
@@ -36,19 +33,16 @@ In der Fortbildung stellen wir uns als Gruppe einem seit Langem schwelenden Konf
 
 ![](/uploads/Winter%202026_B.jpg)
 
-
-
 Für eine kleine Weile lebe ich in dem Appartement einer Freundin in der Stadt mit einem rosa Kühlschrank und einer Fensterbank, auf der ich esse, lese, die Beine hochziehe und in die Sonne schaue, wenn sie scheint. Meine Arbeitshaltung verändert sich weiter. Wenn ich flach atme, halte ich inne und verlangsame das Tempo. Die Ergebnisse werden unwichtiger, meine Verfassung geht vor. Ich übertreibe es völlig mit dem Kerzenlicht in diesen Ausläufern des Winters und lasse einen nicht geringen Betrag meines Freizeitgeldes in den Drogeriemärkten dieser Stadt, um Nachschub zu gewährleisten. Abends ummantelt mich die turmalinblaue Dämmerung, das Unendliche im Endlichen. Ich bin in meinen Gefühlen reich.
 
 ![](/uploads/Winter%202026_C.jpg)
-
-
 
 An einem kalten Freitagabend teilen wir in einem japanischen Lokal an niedrigen Tischen Algensalat, Bohnen und Reis, schieben die Papiertür des holzverkleideten Zimmers zu und generalüberholen die Gesamtsituation. Es muss viel Jasmintee, Asahi Bier und Mangosaft getrunken werden, bis die jüngsten Entwicklungen aller sechs Anwesenden nachgezeichnet, kommentiert, belacht und befühlt worden sind. Ich höre und notiere das schönste, bayrische Kompliment, das je eine Frau unserer Runde einer anderen Frau aus dem Stegreif zugesprochen hat - Dein Ohrwascherl glänzt – ehe wir uns mit roten Bäckchen und Glückskeksen in den Taschen auf den Heimweg machen.
 
 Dann komme ich zurück aufs Land.
 Im Haus gegenüber ist eine zerstrittene junge Familie ausgezogen und ein behutsam miteinander umgehendes älteres Ehepaar eingezogen. Morgens trinken sie beim Schein der kleinen Leuchte Tee aus einer Porzellankanne, bringen dann den Müll runter und fahren zur Arbeit. Abends laufen ZDF-Serien über den großen Bildschirm, manchmal telefoniert einer von ihnen beim Kochen. Im Januar hatten sie Freunde zu Besuch, es wurde Schnee geschippt und schmunzelnd auf dem Hof herum gestanden.
-Erst jetzt, wo der tägliche Streit nicht mehr hör- und sichtbar ist, an anderen Orten stattfindet und weitergeführt wird, beginne ich, das Haus gegenüber wieder zu mögen. Ich schaue gern hin zu der Fassade und sehe den Bewohnern bei ihren Handlungen zu.
+Erst jetzt, wo der tägliche Streit nicht mehr hör- und sichtbar ist, an anderen Orten stattfindet, beginne ich, das Haus gegenüber wieder zu mögen. Ich schaue gern hin zu der Fassade und sehe den Bewohnern bei ihren Handlungen zu.
 
-Der Winter geht zu Ende, unterdessen es noch einmal kniehoch schneit, die Fichten sich biegen und Füchse auf dunklen Feldern ihr flirrendes Fell dem Mondlicht darbieten. 
+Der Winter geht zu Ende, unterdessen es noch einmal kniehoch schneit, die Fichten sich biegen und Füchse auf dunklen Feldern ihr flirrendes Fell dem Mondlicht darbieten.
+
 Nimm mich, Gestirn und Zeit und freier Fall.
