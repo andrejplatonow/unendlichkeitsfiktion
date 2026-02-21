@@ -19,9 +19,8 @@ Dies ist sein Traum. Und seine Aufgabe. Sein Angebot an diese Stadt, an uns. Das
 
 Jeder Mensch hat eine Geste. Etwas, das er geben muss. Etwas, das sie verschleudern will. Wir müssen üppig sein damit, es restlos teilen.
 Do not go gentle into that good night. Rage, rage, against the dying of the light.
-Hier ist es leicht. Auch für mich. Mich zu verausgaben und zu entäußern. Als hätten die Jahrhunderte gewartet auf eine wie mich. Auf eine die zurückliebt; ekstatisch und taumelnd.
 
-![](/uploads/Winter%202026_A.jpg)
+Hier ist es leicht. Auch für mich. Mich zu verausgaben und zu entäußern. Als hätten die Jahrhunderte gewartet auf eine wie mich. Auf eine die zurück liebt; ekstatisch und taumelnd.
 
 When we cease to understand the world.
 
@@ -33,7 +32,7 @@ In der Fortbildung stellen wir uns als Gruppe einem seit Langem schwelenden Konf
 
 ![](/uploads/Winter%202026_B.jpg)
 
-Für eine kleine Weile lebe ich in dem Appartement einer Freundin in der Stadt mit einem rosa Kühlschrank und einer Fensterbank, auf der ich esse, lese, die Beine hochziehe und in die Sonne schaue, wenn sie scheint. Meine Arbeitshaltung verändert sich weiter. Wenn ich flach atme, halte ich inne und verlangsame das Tempo. Die Ergebnisse werden unwichtiger, meine Verfassung geht vor. Ich übertreibe es völlig mit dem Kerzenlicht in diesen Ausläufern des Winters und lasse einen nicht geringen Betrag meines Freizeitgeldes in den Drogeriemärkten dieser Stadt, um Nachschub zu gewährleisten. Abends ummantelt mich die turmalinblaue Dämmerung, das Unendliche im Endlichen. Ich bin in meinen Gefühlen reich.
+Für eine kleine Weile lebe ich in dem Appartement einer Freundin in der Stadt mit einem rosa Kühlschrank und einer Fensterbank, auf der ich esse, lese, die Beine hochziehe und in die Sonne schaue, wenn sie scheint. Meine Arbeitshaltung verändert sich weiter. Wenn ich flach atme, halte ich inne und verlangsame das Tempo. Die Ergebnisse werden unwichtiger, meine Verfassung geht vor. Ich übertreibe es völlig mit dem Kerzenlicht in diesen Ausläufern des Winters und lasse einen nicht geringen Betrag meines Freizeitgeldes in den Drogeriemärkten dieser Stadt, um Nachschub zu gewährleisten. Abends ummantelt mich die turmalinblaue Dämmerung, das Unendliche im Endlichen, ich bin in meinen Gefühlen reich.
 
 ![](/uploads/Winter%202026_C.jpg)
 
