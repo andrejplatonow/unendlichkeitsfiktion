@@ -13,7 +13,7 @@ Das macht aber nichts in diesem Moment, denn wir werden gleich da sein, das Fahr
 
 Ich tanze mit Thula und einer anfangs schüchternen Ukrainerin und ihren Freunden, dem singenden Fahrradfahrer, zwei Mädchen in Warnwesten, einer vom Gerichtsprozess mit dem Vater ihres Kindes völlig zermürbten Mutter und einem guten Dutzend Händen und Armen, die ich im Nebel nicht personell zuordnen kann.
 
-Ich denke nach, während ich tanze, über den Gastgeber und seine Toleranz hinsichtlich der flächendeckenden Verteilung von Bierlachen auf seinem Parkett, den überall ausgezogenen und hingeschmissenen Socken, festgetretenem Bananenbrot, verschmierten Theaterschminke, aus dem Schlafzimmer gezogenen Kopfkissen, angekokelten Pflanzen und nach seinem Deoroller riechenden Achseln von Menschen, die soeben sein Bad benutzt haben. Und ich erkenne seine Liebe darin. Und verstehe.
+Ich denke nach, während ich tanze, über den Gastgeber und seine Toleranz hinsichtlich der flächendeckenden Verteilung von Bierlachen auf seinem Parkett, den überall hingeschmissenen Socken, festgetretenem Bananenbrot, verschmierten Theaterschminke, aus dem Schlafzimmer gezogenen Kopfkissen, angekokelten Pflanzen und nach seinem Deoroller riechenden Achseln von Menschen, die soeben sein Bad benutzt haben. Und ich erkenne seine Liebe darin. Und verstehe.
 
 Dies ist sein Traum. Und seine Aufgabe. Sein Angebot an diese Stadt, an uns. Dass wir uns vergessen können, hier, bei ihm, Affen sind, Hände im Nebel, ein Dröhnen im sechsten Stockwerk des Hauses. Der warme Puls einer Februarnacht.
 
