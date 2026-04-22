@@ -10,9 +10,7 @@ but I keep none for myself.
 
 Aragorns Worte vor der Schlacht. Ich denke oft an ihn und was es bedeutet, ein Kapitel zu schließen, zu handeln und dabei nichts mehr für sich selbst zu erwarten. In den Nächten stehe ich vor dem Haus, die Sterne wie mit Klingen geschnitten, nur nördlich der Alpen sind diese Erfahrungen möglich; splitternde Finsternis, schmerzende Haut, eine präzise Vorstellung davon, von solchen Temperaturen dahingerafft zu werden.
 
-In der Nacht zuvor in der Halle gab es einen sehr stillen Moment. Minuten, in denen die Bewegung der Anwesenden verebbte, beinahe zum Erliegen kam. Die meisten standen zu diesem Zeitpunkt fast reglos, passiv bewegt, subtilste Form. In der Mitte des Kreises ein Mann - ich kenne ihn und weiß, dass ein hartes Jahr hinter ihm liegt, es Tage gab, an denen er zu schwach war, die Wohnung zu verlassen. Eine graue Decke auf den Schultern tanzte er mit gesenktem Blick, allein, während wir ihm zusahen. In solchen Nächten wird alles verhandelt. Ob wir leben oder sterben. Ob wir allein sind oder zusammen. Was in uns brennt und was daraus wird. Es ist nicht sprechbar, kein Intellekt, keine Theorie, nur ein Körper kann das tun, eine verkörperte Seele. 
-
-Eine Entscheidung verdichten zu einem glimmenden Punkt auf dem Zeitstrahl in die Unendlichkeit.
+In der Nacht zuvor in der Halle gab es einen sehr stillen Moment. Minuten, in denen die Bewegung der Anwesenden verebbte, beinahe zum Erliegen kam. Die meisten standen zu diesem Zeitpunkt fast reglos, passiv bewegt, subtilste Form. In der Mitte des Kreises ein Mann - ich kenne ihn und weiß, dass ein hartes Jahr hinter ihm liegt, es Tage gab, an denen er zu schwach war, die Wohnung zu verlassen. Eine graue Decke auf den Schultern tanzte er mit gesenktem Blick, allein, während wir ihm zusahen. In solchen Nächten wird alles verhandelt. Ob wir leben oder sterben. Ob wir allein sind oder zusammen. Was in uns brennt und was daraus wird. Es ist nicht sprechbar, kein Intellekt, keine Theorie, nur ein Körper kann das tun, eine verkörperte Seele.
 
 ...denn wir wissen und fühlen, dass das Grenzenlose schon in uns ist.
 
