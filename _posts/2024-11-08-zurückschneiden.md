@@ -1,7 +1,8 @@
 ---
 title: zurückschneiden
-date: 2024-11-08T20:07:50.111Z
+date: 08.11.2024 21:07
 ---
+
 Entlang des Bahnsteigs werden die ersten Hagebutten reif. Beim Warten auf die S-Bahn pflücke ich eine Handvoll, öffne die Schale und esse das Mark. Eine Woche lang nebelt es über den Mooren, Füchse halten sich darin auf, Schafe, Rehe; grau in grau. Wenn die Sonne rauskommt, liegen die Kühe auf der Weide und blinzeln ins Licht. Sie sind jung und müde vom Verdauen.
 
 Am Abend gehen wir auf die Alte Utting, es ist noch warm genug um draußen zu stehen und Bier zu trinken, erst später wechseln wir in den Innenraum des Schiffs und sitzen unter den gelben Lampen. Nochmal pflügen wir mehrere Tage durch die Materie, beobachten Gruppenprozesse, unsere Rolle darin und welche Taten und Worte in welche Richtung führen. Dann verabschieden wir uns voneinander unter dem karmesinroten Laubdach der Bäume an dem kleinen Stadtsee, es wird dunkel und kalt, aber wir können nicht aufhören uns zu begleiten, bis zur Ampel, bis zur Kreuzung, bis zum Gleis, wissend, dass wir uns in dieser Konstellation nicht wiedersehen.
@@ -10,4 +11,4 @@ Es folgt Arbeit in der Institution und Arbeit in der Praxis. In meinem Umfeld es
 
 Die Gärten hier im Dorf sind ein großes Thema im Herbst. Alle Nachbarn, egal wo man sie trifft, fragen danach, berichten davon. Wie viel Arbeit die zu beschneidenden Obstbäume machen, an welcher Schuppenwand noch Platz für das zu trocknende Holz ist, wo das meterhohe Schnittgut der Sträucher bloß hin soll, wer öfter als fünf Mal mit dem beladenen Anhänger beim Wertstoffhof war, welche Motorsäge etwas taugt, ob die Leiter stabil steht, wer aufgibt und nur noch wachsen lässt. Ich mag die Jahreszeitengespräche. Es ist ein verbaler Kalender, an dem alle teilhaben. In Kürze geht es wieder um Raureif und Eis.
 
-Samstagnacht liege ich nach dem Tanzen mit Stella auf einer Decke und fühle den Herbst durch mich durchziehen. Es ist nicht so schlimm, wie es schon mal war. Es hilft, die heranrollende Kälte mit anderen gleichzeitig zu erleben. Mehr passiert nicht. Es ist November und weiterhin neblig.
+Samstagnacht liege ich nach dem Tanzen auf einer Decke und fühle den Herbst durch mich durchziehen. Es ist nicht so schlimm, wie es schon mal war. Es hilft, die heranrollende Kälte mit anderen gleichzeitig zu erleben. Mehr passiert nicht. Es ist November und weiterhin neblig.
