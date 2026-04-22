@@ -5,7 +5,7 @@ date: 08.04.2025 20:24
 
 Das warst du, und das war ich, 
 wie ich mit dir begonnen habe, 
-vor dem Betreten eines konkreten Raums
+vor dem Betreten eines konkreten Raums.
 
 Ich weiß, dass es mich gerade tiefer rein reißt, als ich das geplant habe. Gewollt habe ich es aber immer. Mich zu verschwenden an jede wache Stunde, an jedes Gefühl. Aus dem Augenwinkel kann ich noch wahrnehmen, dass andere es sehen und vielleicht ungewöhnlich finden, der Rest von mir  hat kapituliert. Die Bewegung aufzuschieben bis sie in dafür vorgesehenen Räumen angelangt ist - das geht nicht mehr. Ich tanze in der U-Bahn, beim Einkaufen, im Flur der Institution, während ich an den Regalen einer Buchhandlung entlang gehe. Ein Kollege, der im gleichen Abteil der U-Bahn sitzt und den ich bis kurz vorm Aussteigen nicht bemerke, sagt, es sei wunderschön an meiner Lebendigkeit teilzuhaben. Ich lächel und er lächelt zurück aus seinem papierliebenden, gut strukturierten Gesicht. 
 
