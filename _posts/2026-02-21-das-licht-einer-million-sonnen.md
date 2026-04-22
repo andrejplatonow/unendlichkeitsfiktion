@@ -20,11 +20,7 @@ Dies ist sein Traum. Und seine Aufgabe. Sein Angebot an diese Stadt, an uns. Das
 Jeder Mensch hat eine Geste. Etwas, das er geben muss. Etwas, das sie verschleudern will. Wir müssen üppig sein damit, es restlos teilen.
 Do not go gentle into that good night. Rage, rage, against the dying of the light.
 
-Hier ist es leicht ,auch für mich; mich zu verausgaben und zu entäußern. Als hätten die Jahrhunderte gewartet auf eine wie mich. Auf eine die zurück liebt; ekstatisch und taumelnd.
-
 When we cease to understand the world.
-
-Mitte des Monats verbringe ich mehrere Abende bei einer Freundin, während sie am Boden sitzt, leise spricht, sich an den Fransen ihres Teppichs hält. Wie wenig symmetrische Gesichtszüge und ein proportional gut gewachsener Körper ausrichten können, wenn die in ihm lebende Person nachts zittert, auf schweißnassen Laken wachgehalten von Angst das Auseinanderfallen aller bisherigen Sicherheiten erlebt, Medikamente nicht mehr greifen, Strategien versagen. Wie soll ich das verstehen, sagt die Freundin immer wieder, ihre Finger im Teppich, die Augen müde. Ich darf nicht kaputt gehen. Ich muss da sein für mein Kind.
 
 In der Fortbildung stellen wir uns als Gruppe einem seit Langem schwelenden Konflikt, in dem jede und jeder Teilnehmende eine klar formulierte Position vertreten und in Beziehung mit den anderen bringen muss. Ich erlebe das erste Mal seit ich mit Menschen arbeite, wie ein eigentlich nicht mehr aufhaltbarer galoppierender Gruppenzerbruch ausbleibt, weil ein talentierter und weiser Trainer es vermag, die Beteiligten an den weich-starken Kern ihrer Gemeinschaftsfähigkeit zu geleiten. Ich werde Wochen brauchen, um nachzuvollziehen, wie das möglich war, wie das überhaupt von Statten ging.
 
