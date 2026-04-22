@@ -2,6 +2,7 @@
 title: Der erste Mond
 date: 08.01.2026 20:30
 ---
+
 In einer Nacht um 2 stehe ich nah vor der Box in einem Club und schließe die Augen. Ich fühle mich ernst genommen und muss ein bisschen mit den Tränen kämpfen. Es kommt nicht oft genug vor, dass ich eine full-body-phenomenon Beziehung mit einem Set eingehen kann, obwohl ich es immer will und immer bereit bin.
 
 Die DJs, von denen ich mich verstanden fühle, kann ich an einer Hand abzählen und nur drei von ihnen legen regelmäßig in München auf.
@@ -9,10 +10,9 @@ Die DJs, von denen ich mich verstanden fühle, kann ich an einer Hand abzählen 
 Später sind es minus 5 Grad, als ich draußen vor der Garderobe auf meinen Mantel warte. Es schneit und meine Haut schmerzt in der Kälte.
 Gehts dir gut, fragt ein Fremder, der hinter mir in der Schlange steht.
 
-Mir ist der verwüstete Zustand meines Erscheinungsbilds bewusst und dass er zurecht Fürsorgereflexe bei meinen Mitmenschen auslöst. Aber mir geht es gut. Ich bin versorgt, emotional satt und high von körpereigenem Serotonin.
+Mir ist der verwüstete Zustand meines Erscheinungsbilds bewusst und dass er zurecht Fürsorgereflexe bei meinen Mitmenschen auslöst. Aber mir geht es gut. Ich bin versorgt, emotional satt und high.
 
-Bist du noch wach, schreibe ich einem Freund, während das Mädchen an der Garderobe mir den Mantel über den Tresen reicht. Ja, komm vorbei, antwortete er.
-
+Bist du noch wach, schreibe ich einem Freund, während das Mädchen an der Garderobe mir den Mantel über den Tresen reicht. Komm vorbei, antwortete er.
 Ich habe endlich jemanden gefunden, dessen Schlafstörung sich mit meiner zeitlich deckt.
 
 Am Samstag steigt der Wolfsmond auf und flutet die schneebedeckten Ebenen vor den Bergen mit weißem Stadionlicht. Mehrmals stehe ich in den Tagen zwischen den Jahren in einem Kreis und sehe in die geweiteten Augen meiner Freunde, absorbiere ihre Ekstase, vermenge und potenziere sie mit meiner.
@@ -45,6 +45,4 @@ Zu Silvester reist die Lyrikfreundin aus Berlin an und besucht mit mir eine Vera
 
 Eine Cousine sendet Räucherwerk, das ich am Morgen entzünde und in das gleißende Weiß der Karwendelkette halte. Ich ruf euch zu, ihr Verschwundenen und Wiederkommenden. Ich ruf euch zu, ihr für immer Verlorenen. Ich ruf euch zu, ihr in anderer Gestalt Weiterlebenden. Ich spreche eure Namen. Ich vergesse euch nicht.
 
-Nachdem der Sommer mich in manchen Belangen schonungslos herunter geschliffen hat, verhält sich der Winter vergleichsweise gnädig, fast samtig, mit lediglich bewältigbaren Lernaufgaben. Ich werde oft berührt in diesem Winter, angetastet, gedreht und von verspielten Armen in Situationen hineingezogen. Ich verliere Kontrolle, entgleise, fühle meine Unsicherheit, halte Menschen, während sie haltlos weinen und mache mich an unterschiedlichen Stellen so final lächerlich, dass es in diesem Leben kein Zurück mehr in eine vermeintliche Überlegenheit geben wird. Ich habe mich allen verraten und wurde von allen erkannt.
-
-This story is told. She was a fool. And God loved her madly.
+Nachdem der Sommer mich in manchen Belangen schonungslos herunter geschliffen hat, verhält sich der Winter vergleichsweise gnädig, fast samtig, mit lediglich bewältigbaren Lernaufgaben. Ich werde oft berührt in diesem Winter, angetastet, gedreht und von verspielten Armen in Situationen hineingezogen. Ich verliere Kontrolle, entgleise, fühle meine Unsicherheit, halte Menschen und mache mich an unterschiedlichen Stellen so final lächerlich, dass es in diesem Leben kein Zurück mehr in eine vermeintliche Überlegenheit geben wird. Ich habe mich allen verraten und wurde von allen erkannt.
