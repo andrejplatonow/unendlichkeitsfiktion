@@ -1,11 +1,12 @@
 ---
 title: ...stepping into this flow is enough to satisfy you forever
-date: 2024-01-19T13:54:23.520Z
+date: 19.01.2024 14:54
 ---
+
 ![](/uploads/qualle-rot.jpeg)
 
-Am Wochenende tanze ich, in der Mitte der Menge, zwei Stunden denke ich nur an mich. Irgendwann bin ich müde und kreise langsam aus dem Epizentrum heraus auf den äußeren Rand zu. Ich komme neben einem Mann zum Stehen, der dort an dieser Stelle bereits den ganzen Abend steht. Er hat nicht getanzt, das habe ich gesehen, er steht da, während alles um ihn tobt. Ich kenne solche Nächte, ich kenne den Zustand. In der Musik sein zu müssen, in der Materie, auch wenn ich nicht in der Lage bin, daran teilzunehmen, das Wasser aufzusuchen, die anderen, mich passiv bewegen zu lassen, eine Qualle im Meer, eine Alge am Riff.\
-\
+Am Wochenende tanze ich in der Mitte der Menge, zwei Stunden denke ich nur an mich. Irgendwann bin ich müde und kreise langsam aus dem Epizentrum heraus auf den äußeren Rand zu. Ich komme neben einem Mann zum Stehen, der dort an dieser Stelle bereits den ganzen Abend steht. Er hat nicht getanzt, das habe ich gesehen, er steht nur da.. Ich kenne solche Nächte, ich kenne den Zustand. In der Musik sein zu müssen, in der Materie, auch wenn ich nicht in der Lage bin, daran teilzunehmen, das Wasser aufzusuchen, die anderen, mich passiv bewegen zu lassen, eine Qualle im Meer, eine Alge am Riff.
+
 Der Mann hat Schmerzen, das ist sichtbar, manchmal zittert sein Mund, er hält die Augen geschlossen. Ich betrachte ihn eine Weile, ehe ich beschließe, zu ihm zu schwimmen. Uns trennen nur wenige Meter, ich muss nichts tun, die Strömung nimmt mich auf. Ich komme an die Seite des Mannes, mit meinem Quallenarm berühre ich ihn an der Schulter. Er öffnet die Augen, schaut auf, nickt und schließt die Augen wieder. Ich lege meinen Quallenarm zwischen seine Schulterblätter. Dann beginnt der Weinkrampf.
 
 Faith does not push the river. Because faith is able to trust that there is a river. The river is flowing. We are in it.
