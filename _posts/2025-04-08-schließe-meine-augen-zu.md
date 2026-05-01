@@ -13,7 +13,7 @@ Die Lyrikfreundin besucht mich, ich hole sie vom Zug, laufe mit ausgebreiteten A
 
 We admire needing no one. Apparently the Trinity admires needing. Needing everything – total communion with all things and all beings. [Richard Rohr]
 
-Während der Fortbildung in der Woche darauf pausiere ich oft in der Sofalandschaft an dem einen Ende des Raums, wo ich döse oder Tee trinke oder mit den Beinen baumel, während andere dazukommen, Salat essen und von Schweizer Technoclubs erzählen. Eine strikt wirkende Kollegin umkreist tagelang das Sofa, schafft es irgendwann neben mir Platz zu nehmen und schließlich  ihren Kopf auf meine Schulter zu legen. Zum ersten Mal seit ich sie kenne,  höres ich sie tief ausatmen.
+Während der Fortbildung in der Woche darauf pausiere ich oft in der Sofalandschaft an dem einen Ende des Raums, wo ich döse oder Tee trinke oder mit den Beinen baumel, während andere dazukommen, Salat essen und von Schweizer Technoclubs erzählen. Eine strikt wirkende Kollegin umkreist tagelang das Sofa, schafft es irgendwann neben mir Platz zu nehmen und schließlich  ihren Kopf auf meine Schulter zu legen. Zum ersten Mal seit ich sie kenne,  höre ich sie tief ausatmen.
 
 Und dann die Nächte. Wechselndes Licht, wechselnde dunkle Himmel. Stellas schwarzes Haar, die silbernen Streifen darin. Finger und Hände der anderen zu greifen, reinzuschwingen in ihre Umlaufbahn, mich ziehen zu lassen und nicht zu widerstehen. Keine Angst mehr vor diesem schmelzendem Kontakt mit der Welt zu haben; bei vollem Bewusstsein aufzugeben.
 
